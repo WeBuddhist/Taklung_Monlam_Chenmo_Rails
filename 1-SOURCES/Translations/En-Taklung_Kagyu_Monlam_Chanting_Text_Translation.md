@@ -102,7 +102,8 @@ with the unceasing song of Dharma! ^1-19
 HUNG! Protecting all sentient beings without exception,
 Unconquered Deity who destroys the heaped race of Maras,
 Who knows all Reality just as it is,
-Please come to this place with your retinue, Accomplished Conqueror! ^1-20
+Please come to this place with your retinue, Accomplished
+Conqueror! ^1-20
 
 Bhagavan, for many countless aeons,
 Purifying compassion out of love for beings,
@@ -177,7 +178,8 @@ to grace the bodies of noble Samantabhadra, Manjughosha,
 Lokeshvara and all the rest, ^1-34
 
 with the softest and most luxurious divine raiment!
-Through my offering to your pure unchangeable vajra body with undivided faith,
+Through my offering to your pure unchangeable vajra
+body with undivided faith,
 may I also attain the vajra body! ^1-35
 
 These clothes, multicolored like a rainbow,
@@ -211,7 +213,8 @@ I imagine it will be filled with all Victorious Ones! ^2-4
 
 All of them are praised as an inexhaustible ocean,
 with the sound of this melodious ocean,
-supremely expressing the enlightened qualities of all Victorious Ones!
+supremely expressing the enlightened qualities of all
+Victorious Ones!
 I praise all the Sugatas [ones gone to bliss]! ^2-5
 
 [With] sacred flowers, sacred garlands, and
@@ -220,7 +223,8 @@ and supreme butter lamps, and sacred incense,
 I make offerings to all Victorious Ones! ^2-6
 
 All sacred garments and supreme fragrances,
-and vessels of aromatic powder equal to the Supreme Mountain [Meru],
+and vessels of aromatic powder equal to the Supreme
+Mountain [Meru],
 and with all these exalted, supreme, and specifically arranged offerings,
 I offer to all the Victorious Ones! ^2-7
 
@@ -234,22 +238,27 @@ Under the power of attachment, hatred and ignorance,
 whatever evil actions I have committed,
 I confess all of them individually. ^2-9
 
-All the Victorious Ones of the ten direction and the Buddha’s Children,
-Pratyekabuddhas, those on the [Paths of] Training and No [More] Training, and-
+All the Victorious Ones of the ten direction and the
+Buddha’s Children,
+Pratyekabuddhas, those on the [Paths of] Training and
+No [More] Training, and-
 whatever merit [gathered] by all animate beings,
 I sympathetically rejoice in all of it! ^2-10
 
 Whoever may be as burning lamps for the ten directions of this perishable universe,
-[those who] attain the Enlightened Stages of Buddhahood without attachment,
+[those who] attain the Enlightened Stages of
+Buddhahood without attachment,
 all of those Protectors, I myself-
 entreat to turn the Unsurpassable Wheel [of Dharma]! ^2-11
 
-To all of those who demonstrate the state of Passing Beyond Sorrow [Nirvana],
+To all of those who demonstrate the state of Passing
+Beyond Sorrow [Nirvana],
 in order to bring benefit and happiness to all animate beings,
 remain for as many aeons as there are atoms in the Pure Realms!
 I entreat you with my hands tightly folded in prayer! ^2-12
 
-[By] prostrate homage, and confessing with offerings, and- sympathetic rejoicing, and supplicating exhortation,
+[By] prostrate homage, and confessing with offerings, and-
+sympathetic rejoicing, and supplicating exhortation,
 whatever little merit I have managed to accumulate,
 I dedicate all of it to Enlightenment! ^2-13
 
@@ -280,7 +289,8 @@ natural wisdom, Vajra Yogini,
 the Guide Kurukulle who accomplishes all goals,
 I prostrate to the Six Excellent Precious Dharma Guards! ^3-5
 
-By praising the Six Deities, the cause of the Seven Founders of the Kagyu,
+By praising the Six Deities, the cause of the Seven
+Founders of the Kagyu,
 may all beings, through stainless virtue,
 like finding a precious jewel, inseparable from perfection,
 unite the Three Qualities in one activity! ^3-6
@@ -336,7 +346,8 @@ I pray that you send a great rain of uninterrupted, ^3-17
 
 supreme, stable awareness!
 Though you never move from the state of non-arising,
-may all the thoughts, happiness and suffering of myself and all following sentient beings, ^3-18
+may all the thoughts, happiness and suffering of myself
+and all following sentient beings, ^3-18
 
 all be completely pacified in the river of equanimity,
 compassion and love,
@@ -369,7 +380,8 @@ may all those who practice following your example,
 when looking undistractedly ^3-24
 
 at the essential nature of mind,
-attain independence through the power of investigating in a forest solitude!
+attain independence through the power of investigating
+in a forest solitude!
 like a mother thinking of her children, ^3-25
 
 through your great compassion,
@@ -430,8 +442,10 @@ to myself and all beings, all of your children,
 to the supreme place of perfect stainless great bliss,
 Please guide us with every kind of skillful means! ^3-37
 
-By requesting you to fulfill your ancient commitments Dharma Lord, Tathagata of the Three Times,
-Please fulfill all of mine and others’ devoted wishes, and Grant that supreme realization will quickly arise! ^3-38
+By requesting you to fulfill your ancient commitments
+Dharma Lord, Tathagata of the Three Times,
+Please fulfill all of mine and others’ devoted wishes, and
+Grant that supreme realization will quickly arise! ^3-38
 
 The Dharma Lord’s commands were taught by the Great Sage.
 Compassion and Great Bliss that never changes!
@@ -450,14 +464,16 @@ Please help us to quickly accomplish virtuous thoughts! ^3-41
 
 By the virtue of respectfully making this prayer,
 My I and all others attain the Dharmakaya in this life,
-May the assembly of the Sangha always be harmonious, and may the perfect Sangha accomplish vast benefit! ^3-42
+May the assembly of the Sangha always be harmonious, and
+may the perfect Sangha accomplish vast benefit! ^3-42
 
 This also was spoken by Sangye Yarjon. ^3-43
 
 Hero who vanquished more than four foreign enemies,
 Ishvara and the others, endowed with the sixfold omniscience and love,
 displaying supreme qualities, adorned with all the marks and signs,
-I prostrate to the Fathers and Sons who show the Three Criteria as one! ^3-44
+I prostrate to the Fathers and Sons who show the Three
+Criteria as one! ^3-44
 
 Unmoving like the supremely solid Mount Sumeru,
 Universal Emperor, without any equal,
@@ -465,10 +481,12 @@ effortlessly benefitting others, leading all to liberation,
 Father and Son Sugatas of the Three Times, I prostrate to you! ^3-45
 
 Three Lords, unconceived and inconceivable,
-with the quality of limitless activity free from intention shaking the Three Worlds and establishing them in the Supreme Realm
+with the quality of limitless activity free from intention shaking the Three Worlds and establishing them in the
+Supreme Realm
 Guiding Dharma Lord Father and Sons, I prostrate to you! ^3-46
 
-By the essence of the Sugatas of the Three Times, the Dharma Lord’s power,
+By the essence of the Sugatas of the Three Times, the
+Dharma Lord’s power,
 Completely pacifying all outer and inner obscurations,
 harm, and hostility,
 Endowed with mutually loving minds, attaining great bliss,
@@ -484,13 +502,16 @@ By the effortless Activity of the Single Character,
 May the gathered disciples, as many as there may be,
 be led to the state of the unsurpassed Dharma Lord! ^3-49
 
-Precious Sangye Yarjon spoke this prayer called “Turning Back the Mongols.” ^3-50
+Precious Sangye Yarjon spoke this prayer called
+“Turning Back the Mongols.” ^3-50
 
 Avalokitesvara from this special Northern Lineage,
 Supreme holder of the Victor’s Doctrine of the rules of pure conduct,
-May the Sun of the Glorious Great Taklung Tangpa’s Accomplishment Lineage pervade Jambudvipa! ^3-51
+May the Sun of the Glorious Great Taklung Tangpa’s
+Accomplishment Lineage pervade Jambudvipa! ^3-51
 
-May the gathering increase greatly in unshakeable joy Without even hearing the names of illness, evil, or obstacles,
+May the gathering increase greatly in unshakeable joy
+Without even hearing the names of illness, evil, or obstacles,
 May completely pure good fortune fall like rain
 And bless that the Doctrine’s Guardians and Protectors increase! ^3-52
 
@@ -603,7 +624,8 @@ I pray for blessings so that the minds of myself and all sentient beings may fol
 I pray for blessings so that our Dharma may follow the Dharma!
 I pray for blessings so that our Dharma may follow the Path!
 I pray for blessings so that the Path may clarify delusion!
-I pray for blessings so that delusion may shine forth as Original Awareness! ^4-22
+I pray for blessings so that delusion may shine forth as
+Original Awareness! ^4-22
 
 I pray for blessings to remember impermanence and death!
 I pray for blessings to be aware of the faults of Samsara!
@@ -652,7 +674,8 @@ be completely victorious over all intervening obstacles,
 and abiding within the view and conduct of noble joy,
 may we perfectly accomplish the benefits of self and other! ^4-32
 
-This was written by the Lord’s own experienced disciple, Ngawang Namgyal, then clarified by the noble Jetsun Drolchok based on his example. ^4-33
+This was written by the Lord’s own experienced disciple, Ngawang Namgyal, then clarified by the noble
+Jetsun Drolchok based on his example. ^4-33
 
 Glorious Victors of the Three Times, without exception,
 gathering the ongoing cycle of the five inexhaustible adornments of being,
@@ -662,7 +685,8 @@ I pray to venerable Namgyal Palzang! ^4-34
 Unchanging Vajra Body, Vairocana,
 Brahma’s voice of Vajra Speech, Amitabha,
 Mind Vajra of Great Bliss, Victor Akshobhya,
-I pray to the supreme, all-pervading Lord of the Hundred Families! ^4-35
+I pray to the supreme, all-pervading Lord of the
+Hundred Families! ^4-35
 
 Distilled essence of the teachings of all the limitless Victors,
 By the supreme path of the Mahamudra of reverent devotion,
@@ -685,7 +709,8 @@ may I become a vessel for all the vast, profound Dharma! ^4-39
 
 Through stable reverence, devotion, trust, and certainty,
 through accomplishing the three ways of pleasing the master,
-may all the secret key points of body, speech and mind Be blended inseparably with my mind! ^4-40
+may all the secret key points of body, speech and mind
+Be blended inseparably with my mind! ^4-40
 
 By the invulnerable armour of Samsara and Nirvana,
 with the single eye of the teachings of the precious Dharma,
@@ -695,7 +720,8 @@ May all beings who pervade space attain complete enlightenment! ^4-41
 May the intentions of the glorious Guru be fulfilled, and may happiness arise for all beings that equal space, and myself and every other being purifying obscurations and gathering accumulations,
 Grant the blessing of swiftly attaining Buddhahood! ^4-42
 
-This is Bhikshu Ngawang Namgyal’s supplication to his Guru, the great Vajra Master Namgyal Rinchen Pal Zangpo. ^4-43
+This is Bhikshu Ngawang Namgyal’s supplication to his Guru, the great Vajra Master Namgyal Rinchen Pal
+Zangpo. ^4-43
 
 Very embodiment of the omniscience and love of all Victors,
 Like a god, manifesting Nirmanakaya for the benefit of beings,
@@ -704,7 +730,8 @@ I pray to Venerable Ngawang Namgyal! ^4-44
 
 Lord of the World, known as the Incomparable Tangpa,
 By manifesting everything as Dharmakaya,
-multitude of appearances as the Garland of Golden Mountains of the Accomplishment Lineage,
+multitude of appearances as the Garland of Golden
+Mountains of the Accomplishment Lineage,
 I pray to the supreme all pervading Lord! ^4-45
 
 As the Buddhas of uncountable previous ages
@@ -729,11 +756,13 @@ and that they be endowed with stainless ethical conduct! ^4-49
 
 Giving rise to the amazing, supreme Mind of Awakening,
 gathering disciples by actualizing the unified Six Perfections,
-establishing them in the higher states and Great Enlightenment,
+establishing them in the higher states and Great
+Enlightenment,
 I pray at the feet of the Great Bodhisattva! ^4-50
 
 Supreme essence of an ocean of Vidyadharas and Scriptures,
-through the unimpaired Kagyu blessing of Transference Attained the highest realization of the profound Path,
+through the unimpaired Kagyu blessing of Transference
+Attained the highest realization of the profound Path,
 I pray to the Supreme Lord of Siddhas! ^4-51
 
 You, the fearless hero, victorious in all directions,
@@ -746,11 +775,13 @@ pacifying all situational and ultimate obstacles,
 And for all wealth and glory, perfect and consistent with Dharma,
 Please grant the blessing of them increasing more and more! ^4-53
 
-So, this was offered with devotion by the Buddhist monk Namgyal Rinchen Pal Zangpo at the Great Residence,
+So, this was offered with devotion by the Buddhist monk
+Namgyal Rinchen Pal Zangpo at the Great Residence,
 when he closely, perfectly beheld the mandala of the face of the Supreme Venerable Nirmanakaya himself. ^4-54
 
 Treasure of an ocean of everything perfect,
-Filled with the Dharma of the Essence of the Supreme Victor Holder of the special, noble Complete Liberation, Taklungpa,
+Filled with the Dharma of the Essence of the Supreme Victor
+Holder of the special, noble Complete Liberation, Taklungpa,
 I prostrate to Ngawang Tashi Paldrup! ^4-55
 
 Garland of emanations of ultimate blessing and realization,
@@ -759,13 +790,15 @@ single Original Awareness appearing in successive forms,
 I prostrate to the one with the power of limitless compassion! ^4-56
 
 Great Vidyadhara Sangye Yeshe, and
-The one called Drington Shakya, who completed the Three Trainings,
+The one called Drington Shakya, who completed the
+Three Trainings,
 The one endowed with the meaning of seeing and hearing, Orgyen Gonpo, and so on,
 I prostrate to NamrolPakye Tenpa! ^4-57
 
 So, the nondual Kaya of Mahamudra
 One who knows all subjects, with powerful certainty,
-Protector of the nine births of the Victory Banner of the Accomplishment Lineage Dharma
+Protector of the nine births of the Victory Banner of the
+Accomplishment Lineage Dharma
 I prostrate to Master Tsemar Gyurpa! ^4-58
 
 Then, as when at the top of a pure, green, wish-fulfilling tree,
@@ -780,7 +813,8 @@ I prostrate to Choden YirabTrokpa! ^4-60
 
 The wild geese of all sciences, without exception
 Arise suddenly from desiring composite things
-Inexhaustible intelligence that joins with whatever experience I prostrate to the one with the power of vast, learned speech! ^4-61
+Inexhaustible intelligence that joins with whatever experience
+I prostrate to the one with the power of vast, learned speech! ^4-61
 
 You gathered the Two Accumulations with great power of meditation,
 The Lord of the Family, supremely, effortlessly, and in a short time,
@@ -799,7 +833,8 @@ Having heard extensively, his purity of heart increases,
 Unity well attained, unobstructedly increasing
 I prostrate to Nyen NgakPawoi Doda! ^4-64
 
-Embodiment of the Realization of Venerable Sangye Yarjon Supremely shining mirror of all conduct,
+Embodiment of the Realization of Venerable Sangye Yarjon
+Supremely shining mirror of all conduct,
 Abiding as he is, able to withstand analysis like gold,
 I prostrate to the one who is wealthy in completely pure ethical conduct! ^4-65
 
@@ -816,7 +851,8 @@ I prostrate to the Great Vajra Master! ^4-67
 Knowing that all Dharmas in the apparent world are desireless and unobstructed,
 Pervading, permanent, non-referential compassion,
 without measure or clinging,
-You, protector with the power to free the bonds of Samsara and Nirvana,
+You, protector with the power to free the bonds of
+Samsara and Nirvana,
 By the continually abiding, indestructible, essential bindu, ^4-68
 
 May myself and others on the path of devotion, all disciples,
@@ -824,7 +860,11 @@ effortlessly accomplish all of our virtuous aims,
 and may the Glorious Taklungpa’s famous
 Dharma be a beautiful ornament for the world! ^4-69
 
-The peerless precious Lord of Dharma Ngawang Tashi Paldrup made this praise at the feet of the supreme NgedonChokyi Nyima Namdrol. Called the “Loud Drum of the Cloud of Faith,” this praise was requested by the Vajra Disciple DesheDamtsik’s patron, the wealthy Ngawang ChojinGyutso, and written by the Bhikshu Ngawang Namgyal in the eastern subtle channel, the supreme pure land of Vajra Mirror. Virtue and Happiness! ^4-70
+The peerless precious Lord of Dharma Ngawang Tashi
+Paldrup made this praise at the feet of the supreme
+NgedonChokyi Nyima Namdrol. Called the “Loud
+Drum of the Cloud of Faith,” this praise was requested by the Vajra Disciple DesheDamtsik’s patron, the wealthy Ngawang ChojinGyutso, and written by the
+Bhikshu Ngawang Namgyal in the eastern subtle channel, the supreme pure land of Vajra Mirror. Virtue and Happiness! ^4-70
 
 ## 5. The Prayer called “Precious Body” ^5-0
 
@@ -914,7 +954,8 @@ You establish all beings in supreme Enlightenment!
 I prostrate to You, endowed with incomparable love! ^5-19
 
 In all the great places, Orgyen and so on,
-By pleasing all the assemblies of Viras and Yogins, and all the assembled Dakinis, queens of the expanse,
+By pleasing all the assemblies of Viras and Yogins, and
+all the assembled Dakinis, queens of the expanse,
 I prostrate to You, stainless co-emergence! ^5-20
 
 Completely abandoning all worldly elaborations,
@@ -937,7 +978,8 @@ from JiktenGonpo of the Drigung,
 I praise you with reverence!
 May the Doctrine pervade all the great Bhumis! ^5-24
 
-This was written by DrigungKyobpa, and the last shloka was added as a praise by Venerable Ngawang Namgyal, incorporating some of Thangpa’s extensive biography in 17 chapters, and spoken based on this work. ^5-25
+This was written by DrigungKyobpa, and the last shloka was added as a praise by Venerable Ngawang
+Namgyal, incorporating some of Thangpa’s extensive biography in 17 chapters, and spoken based on this work. ^5-25
 
 [Ed: no English translation given in source] ^5-26
 
@@ -1007,14 +1049,17 @@ I praise you, Lord of Dharma, the glory of Samsara and Nirvana! ^5-39
 Accomplishing all wishes and aims just as desired,
 expanse of the inseparable, nondual, self-liberated mind,
 indefinite, unmeasurable Thatness
-I bow at the feet of the Dharma Lord, Great Bliss of the Expanse of Awareness! ^5-40
+I bow at the feet of the Dharma Lord, Great Bliss of the
+Expanse of Awareness! ^5-40
 
 By the blessings of reverence for You, precious one,
 May I and all sentient beings who equal space,
 Purifying all obscurations of body, speech and mind,
 realize qualities equal to the Threefold Lord! ^5-41
 
-This, written by the essence of all Buddhas, Precious Guru Sangye Yarjon, who was the nephew of Sangye Won, his mind filled with supreme joy at meeting a yogin of Hevajra, Avadhutipa, a perfect Rishi, in the snake year, the monkey month, on the tenth day of the waxing moon, is completed. ^5-42
+This, written by the essence of all Buddhas, Precious
+Guru Sangye Yarjon, who was the nephew of Sangye
+Won, his mind filled with supreme joy at meeting a yogin of Hevajra, Avadhutipa, a perfect Rishi, in the snake year, the monkey month, on the tenth day of the waxing moon, is completed. ^5-42
 
 All Tathagatas, illusory original awareness,
 Magical fame, consistent with the Lord’s intention,
@@ -1146,7 +1191,8 @@ It is excellent in meaning, in words, and in syllables, ^6-51
 It is unadulterated, utterly complete, absolutely pure,
 and absolutely purifying, ^6-52
 
-it is taught perfectly by the Accomplished Transcendent Conqueror. ^6-53
+it is taught perfectly by the Accomplished Transcendent
+Conqueror. ^6-53
 
 it brings perfect vision, ^6-54
 
@@ -1204,7 +1250,8 @@ piloting the ship that tames beings, ^7-3
 
 unsurpassable guide of all gods and humans, ^7-4
 
-I prostrate to the Buddha, the Accomplished Transcendent Conqueror, Glorious Victor Shakyamuni ^7-5
+I prostrate to the Buddha, the Accomplished
+Transcendent Conqueror, Glorious Victor Shakyamuni ^7-5
 
 I make offerings, I go for refuge! ^7-6
 
@@ -1431,7 +1478,8 @@ You manifested passing into Nirvana. ^12-16
 
 Your incomparable relics,
 like the fabulous royal wish-granting gem,
-become a lamp for the merit of this destructible world of gods and human beings. ^12-17
+become a lamp for the merit of this destructible world of gods
+and human beings. ^12-17
 
 Finally, as long as the world exists,
 by manifesting a display of emanations,
@@ -1444,12 +1492,15 @@ May I, along with all who become your disciples,
 attain the state of omniscience! ^12-19
 
 So, in order to benefit and bring joy to sincere students,
-the all-knowing Lord of Speech spoke this on the Holy Day of Sravana, on the twelfth day of the waxing moon,
-and written down by Ngawang Namgyal at the Great Vihara of the Glorious Taklung. Sarva Mangalam! ^12-20
+the all-knowing Lord of Speech spoke this on the Holy
+Day of Sravana, on the twelfth day of the waxing moon,
+and written down by Ngawang Namgyal at the Great
+Vihara of the Glorious Taklung. Sarva Mangalam! ^12-20
 
 ## 13. Praise of the King of Sages and Disciples Called The Loud Sound of Drums That Awakens All Beings Through Great Equanimity ^13-0
 
-Ocean of Jewels’ generosity, the Two Accumulations gathered and completely polished in the Dharmata,
+Ocean of Jewels’ generosity, the Two Accumulations
+gathered and completely polished in the Dharmata,
 by the Great Truth, inconceivable and completely pure,
 placed as ornaments of the pure realms of the ten directions, all ^13-1
 
@@ -1461,7 +1512,8 @@ arriving through the power of your heart vow, please abide here! ^13-2
 Through the power of your loving aspirations, great,
 vast, and profound,
 Gloriously arriving at the pinnacle of all the Victorious Ones,
-Lord who turns the wheel of the Dharma of the Three Yanas I bow down to the Entity of all Perfect Buddhas! ^13-3
+Lord who turns the wheel of the Dharma of the Three Yanas
+I bow down to the Entity of all Perfect Buddhas! ^13-3
 
 Shiva on Mt Kailash, form of virtuous merit,
 source of an ocean of the supports for benefit and happiness,
@@ -1534,8 +1586,10 @@ Protecting from the abyss of samsara and nirvana, Nagasena,
 holding a cooling, excellent vase of treasure,
 I bow down to the Arhat with one thousand two hundred! ^13-17
 
-Expounding Vihula on the beautiful ornament of Mt Meru the noble Shravaka Gopaka,
-understanding the book of the Buddha’s teachings concerning time I bow down to the Arhat with one thousand two hundred! ^13-18
+Expounding Vihula on the beautiful ornament of Mt Meru
+the noble Shravaka Gopaka,
+understanding the book of the Buddha’s teachings concerning time
+I bow down to the Arhat with one thousand two hundred! ^13-18
 
 By the banks of the Sindh River, on the peak of the snow mountains,
 with the unchanging wealth of intelligence and liberation,
@@ -1575,7 +1629,10 @@ By the virtue of the Dharma of Scripture and Realization,
 So that disciples’ minds may grow and flourish forever,
 Grant your blessings that all will be accomplished as we wish! ^13-26
 
-So, at the great seat of the Glorious Taklung, the Sangha were ordained as full Bhikshus, which they perfectly accepted over a half-month’s time. When taking the mending-purification vows, after reciting the Pratimoksha Sutra, they requested this prayer, and the Bhikshu Ngawang Namgyal composed this with delight in the immaculate Upper Retreat. Virtue! ^13-27
+So, at the great seat of the Glorious Taklung, the
+Sangha were ordained as full Bhikshus, which they perfectly accepted over a half-month’s time. When taking the mending-purification vows, after reciting the
+Pratimoksha Sutra, they requested this prayer, and the
+Bhikshu Ngawang Namgyal composed this with delight in the immaculate Upper Retreat. Virtue! ^13-27
 
 ## 14. The Tea Offering: Deathless Amrita ^14-0
 
@@ -1594,7 +1651,8 @@ Lord of the Sages, taming all who are to be tamed in every realm,
 to all your heirs and all their disciples,
 I offer this tea of deathless amrita! ^14-3
 
-Long ago, you were appointed to protect the Dharma Glorious Awareness Protector, together with your consort,
+Long ago, you were appointed to protect the Dharma
+Glorious Awareness Protector, together with your consort,
 With the divine UpasakaYigyal (Lynx King) and his retinue,
 I offer this tea of deathless amrita! ^14-4
 
@@ -1609,7 +1667,8 @@ Your speech, the song of Brahma, like a rainfall of Dharma,
 I pray you will protect your disciples with loving heart, ^14-6
 
 establish our mother sentient beings in bliss, and
-cause the doctrine of the Royal Sage to flourish, and pacifying all opposing circumstances and obstacles,
+cause the doctrine of the Royal Sage to flourish, and
+pacifying all opposing circumstances and obstacles,
 may we quickly attain the supreme kingdom of Buddha! ^14-7
 
 So, after being requested by one steward who needed a tea offering prayer, I, Ngawang Namgyal Trashi, praised thus. ^14-8
@@ -1637,7 +1696,8 @@ were completely liberated by the highest path,
 I prostrate to Glorious Naropa! ^15-4
 
 Supremely abiding in the ocean of the Noble Land,
-Mahasiddha who relied with devotion on the King of Nagas (Buddha),
+Mahasiddha who relied with devotion on the King of
+Nagas (Buddha),
 Possessing the jewel treasury of the Hearing Lineage,
 I prostrate to Marpa the Translator! ^15-5
 
@@ -1723,7 +1783,8 @@ I praise you with supreme reverence! ^15-21
 
 The light rays of your embodied form
 are supremely victorious over all conflicting conditions,
-and renowned for the assembly of disciples’ supportive conditions I prostrate to the guiding Lord of Dharma! ^15-22
+and renowned for the assembly of disciples’ supportive conditions
+I prostrate to the guiding Lord of Dharma! ^15-22
 
 In the centre of the vast ocean of merit
 filled with the glorious jewels of the Kagyu,
@@ -1772,7 +1833,8 @@ I prostrate to Ngawang Drakpa! ^15-31
 
 Filling the minds of both sutra and mantra,
 treasure of many glorious qualities,
-you bestow all ordinary and supreme accomplishments I prostrate to Trinlay Tendzin! ^15-32
+you bestow all ordinary and supreme accomplishments
+I prostrate to Trinlay Tendzin! ^15-32
 
 Holder of the white lotus, protector of beings,
 who is like the Second Buddha
@@ -1781,7 +1843,8 @@ I prostrate to Drakpa Rinchen! ^15-33
 
 From the ocean of previous training in the two accumulations,
 By the wish-fulfilling jewel of great love,
-You clear away all the poverty of Samsara and Nirvana I prostrate to NyendrakPalzang! ^15-34
+You clear away all the poverty of Samsara and Nirvana
+I prostrate to NyendrakPalzang! ^15-34
 
 You perceive with no delusion the natural state as it is,
 Knowing all objects of knowledge as they appear,
@@ -1810,7 +1873,8 @@ Swirl like a cloak around the glory of your mind.
 I prostrate to DrakpaKunsal! ^15-39
 
 The hundred thousand suns of omniscient love
-clear away the darkness of ignorance of the Three Worlds With the glorious quality of naturally accomplishing the two benefits,
+clear away the darkness of ignorance of the Three Worlds
+With the glorious quality of naturally accomplishing the two benefits,
 I prostrate to LodroDrimay! ^15-40
 
 The three secrets of all Buddhas
@@ -1858,16 +1922,20 @@ and their heirs have completely dedicated
 This virtue, and all other virtues,
 I dedicate to the great enlightenment of all beings! ^15-49
 
-Thus, this prayer in verse form to all the Kagyu Rinpoches was written with a devoted mind by the BhikhshuNgaggi Wangpo. From Ngawang Namgyal on down, the lineage prayers were previously amended by others. ^15-50
+Thus, this prayer in verse form to all the Kagyu
+Rinpoches was written with a devoted mind by the
+BhikhshuNgaggi Wangpo. From Ngawang Namgyal on down, the lineage prayers were previously amended by others. ^15-50
 
 ## 16. This is the Supplication of the Kagyu called the Manika Crystal ^16-0
 
-In the presence of Jedrung Rinpoche at the upper retreat of Rachung, on the occasion of consecrating a painting of the lineage masters, I heard you teach on the heritage of the deity. When I supplicated, Won Heruka with all his attributes appeared in the thangka,
+In the presence of Jedrung Rinpoche at the upper retreat of Rachung, on the occasion of consecrating a painting of the lineage masters, I heard you teach on the heritage of the deity. When I supplicated, Won
+Heruka with all his attributes appeared in the thangka,
 and I offered the seven branches and prayed. He was adorned with the attributes of ordination, with vajra and kartari in his left hands and his right holding a ghanta, and kapala filled with amrita. Then I requested the amrita from the great powerful Hevajra. When the great powerful Hevajra gave it to me, the swirling amrita that I was able to drink had an inexhaustible,
 extremely sweet flavour, and as I sipped by stages,
 I thought that this dharma was useless. I said I was unable to finish it, and as I said that, he snapped his fingers and said drink one more mouthful! Arising from the mandala, the Great Powerful One gave it to me,
 and the one called Lilavajra prayed: “Please bestow all your collected teachings on us!” “In order to bless the disciples, a ganachakra vast feast offering is necessary,” he said. Offering the ganachakra, he spoke these words: “Enjoy this inexhaustible ganachakra as great original awareness!” Then, we said, “A La La!
-Please give us a prayer to the Kagyu Rinpoches!” Then he spoke this prayer called the “Supplication of the Manika Crystal.” ^16-1
+Please give us a prayer to the Kagyu Rinpoches!” Then he spoke this prayer called the “Supplication of the
+Manika Crystal.” ^16-1
 
 In the space-like Dharmata,
 Taking up the form of the Great Rupakaya,
@@ -1889,7 +1957,8 @@ Scorning all suffering,
 You performed twelve great austerities
 and supremely pleased Tilopa.
 You were filled with Holy Dharma like a vase,
-You gained the siddhi of the Dakini’s Rainbow Body You are famous as Jnana Siddhi!
+You gained the siddhi of the Dakini’s Rainbow Body
+You are famous as Jnana Siddhi!
 I pray to that Guru!
 Venerable one, please grant your blessings! ^16-4
 
@@ -1909,15 +1978,18 @@ You are known as Vajra Victory Banner
 I pray to the Great Father Repa!
 Venerable one, please grant your blessings! ^16-6
 
-Holder of the prophecy of the Great Sage of the Shakyas Born near the region of Nyal,
+Holder of the prophecy of the Great Sage of the Shakyas
+Born near the region of Nyal,
 You completed the study of healing and medicine,
-and joined the two rivers of Kadampa and Mahamudra holding both the lineages.
+and joined the two rivers of Kadampa and Mahamudra
+holding both the lineages.
 You are famous as the “World Renowned!”
 I pray to that Guru!
 Venerable one, please grant your blessings! ^16-7
 
 Accepted by that incomparable one,
-you were able to emanate one billion forms in a single night Bound by the commitment of divine powers and so on,
+you were able to emanate one billion forms in a single night
+Bound by the commitment of divine powers and so on,
 You are famous as Dorje Gyalpo (Phagmodrupa)!
 I pray to that Guru!
 Venerable one, please grant your blessings! ^16-8
@@ -1925,7 +1997,8 @@ Venerable one, please grant your blessings! ^16-8
 Bhagavan Protector Akshobhya himself,
 In order to establish many beings in happiness,
 You guide myself and all other beings
-Your famous signs are extremely difficult to describe You are famous as Venerable Supreme Guide Tashi Pal!
+Your famous signs are extremely difficult to describe
+You are famous as Venerable Supreme Guide Tashi Pal!
 I pray to that Father Guru!
 Father, quickly hold with your compassion! ^16-9
 
@@ -1949,21 +2022,31 @@ May the precious Doctrine of the Buddha
 and it’s essence, this Doctrine of the Practice Lineage,
 continually pervade and expand
 in all directions, times and countries!
-May the doctrine holders’ bodies and lives remain stable, and may all beings act in accord with Dharma! ^16-13
+May the doctrine holders’ bodies and lives remain stable, and
+may all beings act in accord with Dharma! ^16-13
 
-The Yogin of Hevajra wrote this for the benefit of Gegpay Dorje. It is said that by hearing this supplication just one time, the blessing enters one’s mind and it is impossible to be separated from the Kagyu. So, then,
+The Yogin of Hevajra wrote this for the benefit of Gegpay
+Dorje. It is said that by hearing this supplication just one time, the blessing enters one’s mind and it is impossible to be separated from the Kagyu. So, then,
 fold your hands above your head and hold this in mind.
 After I prayed for this extremely extensive supplication,
-I felt that I didn’t need any other prayers. It is the blessing of inseparability. So, if you ask what my name is, I am called Shakya Trashi Kirti Ratna Sherab Pal Zangpo Dud de Choklay Namgyal. When I was staying at Rinpoche’s seat, I asked how the Seat could grow and flourish, and he said “you must care for this Seat and embrace it continually. This growing and flourishing may take almost as long as Lokeshvara’s commitment.”
-Then I asked if it would be appropriate to tell this to others, and he replied “very appropriate!” Then Kirti Ratna Su Siddhi also asked: “Please tell all the faithful ones!” “Teaching those without samaya is a great commitment. Explain the reasons!” “Resting the mind is the great essential point,” he said. I asked if establishing others in Dharma for fame and disciples isn’t a good thing to do? He said, “this is like the sound of ringing a hand bell with the strength of a white lion.
+I felt that I didn’t need any other prayers. It is the blessing of inseparability. So, if you ask what my name is, I am called Shakya Trashi Kirti Ratna Sherab Pal
+Zangpo Dud de Choklay Namgyal. When I was staying at Rinpoche’s seat, I asked how the Seat could grow and flourish, and he said “you must care for this Seat and embrace it continually. This growing and flourishing may take almost as long as Lokeshvara’s commitment.”
+Then I asked if it would be appropriate to tell this to others, and he replied “very appropriate!” Then
+Kirti Ratna Su Siddhi also asked: “Please tell all the faithful ones!” “Teaching those without samaya is a great commitment. Explain the reasons!” “Resting the mind is the great essential point,” he said. I asked if establishing others in Dharma for fame and disciples isn’t a good thing to do? He said, “this is like the sound of ringing a hand bell with the strength of a white lion.
 Your fame is also like this. If your relationship with disciples is like Lokeshvara’s motivation of old, then it’s that way,” he said. Then I prostrated. I prayed,
-“may the Buddhadharma in general, and particularly the accomplishment lineage of the Taklung Kagyu Dharma grow and flourish! And especially, may the MarthangTaklung Dharma of Riwoche grow and flourish! May I be endowed with the good fortune to be able to establish in Dhamra all the regions of Do Kham.” Saying “may it become like this,” I snapped my fingers three times. Then afterwards, Lilavajra spoke three times: “What is your connection with Yarjon today?”Hearing these unpleasant words, I asked “what is the point of that?” “There is no point,” he replied.
-“Well then, I have a powerful reliquary with the the amrita of Krsnari and the authority of the Dharmapala of the Tent.” He gave the torma empowerment of the Great Powerful Mandala of Krsnari. For the secret initiation, he assigned HerukaTrinlay Dupa Tsal with two hands holding varja and ghanta. Bestowing the daily practice text and so on of HevajraKrsnari, he said “benefit beings!” Then I said, “I don’t think I’ve received Rinpoche’s supplication!” “What does this evil person say? I have one answer, that the Rosary of Kagyu is self arisen from marble.” Then bestowing the self-arisen Dharmapala of the Tent from the Black Rock Charnel Ground, and others, he said “this is to stabilize your faith.” Thus Je Choktrul Rinpoche, on the twenty-eighth day of the eighth month of his fifteenth year, a prophesy arose during a life accomplishment,
+“may the Buddhadharma in general, and particularly the accomplishment lineage of the Taklung Kagyu
+Dharma grow and flourish! And especially, may the
+MarthangTaklung Dharma of Riwoche grow and flourish! May I be endowed with the good fortune to be able to establish in Dhamra all the regions of Do
+Kham.” Saying “may it become like this,” I snapped my fingers three times. Then afterwards, Lilavajra spoke three times: “What is your connection with Yarjon today?”Hearing these unpleasant words, I asked “what is the point of that?” “There is no point,” he replied.
+“Well then, I have a powerful reliquary with the the amrita of Krsnari and the authority of the Dharmapala of the Tent.” He gave the torma empowerment of the
+Great Powerful Mandala of Krsnari. For the secret initiation, he assigned HerukaTrinlay Dupa Tsal with two hands holding varja and ghanta. Bestowing the daily practice text and so on of HevajraKrsnari, he said “benefit beings!” Then I said, “I don’t think I’ve received Rinpoche’s supplication!” “What does this evil person say? I have one answer, that the Rosary of Kagyu is self arisen from marble.” Then bestowing the self-arisen Dharmapala of the Tent from the Black
+Rock Charnel Ground, and others, he said “this is to stabilize your faith.” Thus Je Choktrul Rinpoche, on the twenty-eighth day of the eighth month of his fifteenth year, a prophesy arose during a life accomplishment,
 excellently wrote this afterwards. ^16-14
 
 ## 17. Knowing the Space of Objects of Knowledge ^17-0
 
-Vast mandala of those who know the space of knowledge Brilliant deeds bestowed on the realm of disciples,
+Vast mandala of those who know the space of knowledge
+Brilliant deeds bestowed on the realm of disciples,
 Illuminating all the doctrines of the Victorious Ones,
 I prostrate to the Precious Kagyu! ^17-1
 
@@ -1974,7 +2057,8 @@ I prostrate to peerless Gampopa! ^17-2
 
 Perfect Guru, precious protector of beings,
 coming to Shanti Mountain for the benefit of disciples,
-acting for the benefit of others through the Dharmas of Scripture and Realization,
+acting for the benefit of others through the Dharmas of
+Scripture and Realization,
 I prostrate to You, Regent of the Teacher! ^17-3
 
 From his birth in the female earth sheep year onward,
@@ -1998,7 +2082,8 @@ guarding the Three Trainings like your own eyeballs,
 I prostrate to You, Master of Bhikshus! ^17-7
 
 Placing the dust of the Holy Teacher’s feet on your head,
-You learned vast teachings on Vinaya, Mantra and so on Developing innumerable samadhis, attaining the dreamlike Bhumis,
+You learned vast teachings on Vinaya, Mantra and so on
+Developing innumerable samadhis, attaining the dreamlike Bhumis,
 I prostrate to You, Precious Merit! ^17-8
 
 When you heard the Guru’s name through pure aspiration Bodhicitta,
@@ -2012,7 +2097,8 @@ I consider to be my heart son and lineage heir!”
 I prostrate to You, Teacher from Central Tibet! ^17-10
 
 He gave the oral instructions for the supremely profound, Holy Path of Means,
-With no distraction, You diligently practiced and accomplished And realization, the Guru’s kindness, was born in Your mind,
+With no distraction, You diligently practiced and accomplished
+And realization, the Guru’s kindness, was born in Your mind,
 I prostrate to You, diligent one! ^17-11
 
 You entered the supreme Path of Secret Mantra
@@ -2021,7 +2107,8 @@ and became qualified to work with channels, nadis and bindu,
 I prostrate to You, Lord of Yogins! ^17-12
 
 When meditating on the four-session yoga of the Two Stages,
-You met the Seven Medicine Buddha Brothers in the Sambhogakaya Pureland,
+You met the Seven Medicine Buddha Brothers in the
+Sambhogakaya Pureland,
 And met the Lord of Sages and the other Thousand Buddhas,
 I prostrate to You, Mount Meru, Lord of Humans! ^17-13
 
@@ -2030,7 +2117,8 @@ Realizing the Three Kayas, attaining the Two Siddhis,
 You thus attained the state of Bhikshu Vajra Holder.
 I prostrate to the Venerable One, famous throughout the world! ^17-14
 
-Completely transmitting all empowerments and Dharma without exception,
+Completely transmitting all empowerments and
+Dharma without exception,
 abandoning evil companions and embracing solitude,
 Accomplishing the benefit of others, saying “Protect your stock of accomplishments!”
 I prostrate to You, Great Being! ^17-15
@@ -2090,7 +2178,8 @@ On the fifteenth day of the sixth month of the female water bird year,
 Your great being departed to the Dharmadhatu.
 I prostrate to You, who passed into Nirvana! ^17-26
 
-Many rainbow lights with parasols, and victory banners, and rainfalls of flowers, and the sound of music occurred.
+Many rainbow lights with parasols, and victory banners, and
+rainfalls of flowers, and the sound of music occurred.
 All the earth shook, and all the birds cried out,
 I prostrate to You, amazing miracle! ^17-27
 
@@ -2137,7 +2226,9 @@ personification of the Four Kayas and Five Jnanas,
 I dedicate all to unsurpassable complete Great Enlightenment! ^17-35
 
 So, this prayer, based on the biography of the complete liberation of the Lord of Dharma, Glorious Gampopa,
-along the with Seven Branches, was written at the Great Seat of Glorious Phagmo Drupa by the Venerable Phagmo Drupa himself. ^17-36
+along the with Seven Branches, was written at the
+Great Seat of Glorious Phagmo Drupa by the Venerable
+Phagmo Drupa himself. ^17-36
 
 Possessing the prophesy of the Tathagata,
 You benefitted beings in these degenerate times.
@@ -2156,7 +2247,8 @@ This was written by Ngawang Namgyal. ^17-39
 Homage to the Guru! ^18-1
 
 Long ago, the Tathagata Krakucchanda (Destroyer of Samsara)
-In this realm, the Completely Enligtened One, Shakyamuni In the future, in the world “Covered with Flowers”
+In this realm, the Completely Enligtened One, Shakyamuni
+In the future, in the world “Covered with Flowers”
 You take the form of Akshobhyavajra, and teach the Dharma,
 I pray to the Precious Protector of Beings! ^18-2
 
@@ -2167,14 +2259,16 @@ learned and accomplished king’s ministers who manifest purified ordinariness,
 I pray to the guide of limitless sentient beings! ^18-3
 
 Then, as the Regent of Youthful Moonlight,
-in Do Kham, toward Dri Valley, by the Five Clairvoyances manifesting the Nirmanakaya, without the suffering of birth,
+in Do Kham, toward Dri Valley, by the Five Clairvoyances
+manifesting the Nirmanakaya, without the suffering of birth,
 in that very moment, clearly knowling the three times,
 I pray to the Holy Supreme Nirmanakaya! ^18-4
 
 Arising from the ocean of innumerable Samadhis,
 In front of the Kalyanamitra Blazing Ethics, and
 Victory Banner of Light Rays, becoming ordained,
-You became known as the Protector of Beings, Dorje Gyalpo I pray to the one who wears the crown of the Signs of Perfection! ^18-5
+You became known as the Protector of Beings, Dorje Gyalpo
+I pray to the one who wears the crown of the Signs of Perfection! ^18-5
 
 Rest from noise and labor, principal one of the many, and so on,
 Not relying on training, naturally becoming omniscient,
@@ -2189,7 +2283,8 @@ Madhyamaka, and Prajnaparamita,
 Without an equal in teaching debate, exposition, and composition,
 I pray to the Lord of the Learned in the Land of Snows! ^18-7
 
-At the Dharma College of Tsurphu, the great Tamer of Actions and so on,
+At the Dharma College of Tsurphu, the great Tamer of
+Actions and so on,
 from the masters and disciples of the Assembly of the Learned,
 becoming fully ordained, holding the victory banner of the burial shroud,
 and became famous as the second Buddha,
@@ -2217,7 +2312,8 @@ You vowed to equal the Guru’s abandonment and realization.
 I pray to You, Great Dharma King! ^18-11
 
 In pure vision, meeting the Holy Buddha and
-the One Mother, andfilled like a vase with all the healing oral instructions that could be obtained, without exception,
+the One Mother, andfilled like a vase with all the healing
+oral instructions that could be obtained, without exception,
 in the forty-ninth Male Earth Tiger Year,
 in the forest solitude of Samantabhadra, you accomplished Varahi.
 I pray to the one who abides on the Lion Throne! ^18-12
@@ -2255,14 +2351,16 @@ dissolved, and in the stainless pure land,
 in the presence of the Buddha Akshobhya, attained enlightenment.
 I bow down to LodroDrimay Gyalpo! ^18-17
 
-When your remains were purified, the Tathagatas of the Five Families appeared,
+When your remains were purified, the Tathagatas of the
+Five Families appeared,
 and the assembly of Dakas and Dakinis praised and made offerings,
 heart, tongue and eye relics beyond imagination,
 with earthquakes, rains of flowers, and massed rainbows,
 a holy place with a Stupa of Dharmakaya was established.
 I pray to the Inconceivable Miracle! ^18-18
 
-Thus, by seeing, hearing, and remembering this meaningful King of Dharma, the great protector of beings,
+Thus, by seeing, hearing, and remembering this meaningful
+King of Dharma, the great protector of beings,
 if one prays while keeping your life story in mind,
 from the equanimity of the Dharmata, great loving ^18-19
 
@@ -2280,11 +2378,15 @@ please increase the ocean of those disciples who rest equally
 in the definitive meaning of the natural state of bliss- emptiness! ^18-21
 
 In all countries, may the continuity of seasons be peaceful,
-may everyone, everywhere, practice the path of the Ten Virtues as one,
+may everyone, everywhere, practice the path of the Ten
+Virtues as one,
 And may all together quickly attain
 the Holy State of the Vajra King! ^18-22
 
-So, the Vajra Master, named Ayu, of the Great Dharma College, DrupgyuTengye Ling, that holds the Long Tradition of Definitive Meaning, requested me, Trinlay Jampa Jungne, who has received a small amount of blessing from the Venerable Guru, the Great Protector of Beings, to write this. May it be excellent virtue! ^18-23
+So, the Vajra Master, named Ayu, of the Great Dharma
+College, DrupgyuTengye Ling, that holds the Long
+Tradition of Definitive Meaning, requested me, Trinlay
+Jampa Jungne, who has received a small amount of blessing from the Venerable Guru, the Great Protector of Beings, to write this. May it be excellent virtue! ^18-23
 
 ## 19. This is the Praise of the Life Story of Glorious Taklung Tangpa called the Great Drum of Sincere Faith ^19-0
 
@@ -2309,7 +2411,8 @@ On the peak of Potala Mountain,
 is the protector Avalokiteshvara, Lord of the World. ^19-4
 
 In the glorious western pure land of Orgyen,
-is the Lord of the Supremely Accomplished, Wangpo’i Lo In the eastern pure land called Stainless,
+is the Lord of the Supremely Accomplished, Wangpo’i Lo
+In the eastern pure land called Stainless,
 is the Lord Sambuddha, the Protector Akshobhya. ^19-5
 
 Generally, in all the limitless pure lands in the ten directions,
@@ -2328,7 +2431,8 @@ Then, from your mouth, Lord Jewel,
 came speech like the great roar of a lion: ^19-8
 
 My country is the prosperous lower Tang Kya,
-My family lineage is the Three Great Clans of the White-Blazed Onyx,
+My family lineage is the Three Great Clans of the
+White-Blazed Onyx,
 My father is the radiant Monk Minister,
 My mother is the Wrathful Lady of Three Virtues, ^19-9
 
@@ -2349,7 +2453,8 @@ At that time, the Dharma Lord, the Protector of Beings,
 just hearing his name caused admiration and devotion to blaze ^19-12
 
 Earlier, when I went to U, I made many plans,
-however, those were delayed and remained unfinished, and at that time, the Precious Nirmanakaya,
+however, those were delayed and remained unfinished, and
+at that time, the Precious Nirmanakaya,
 joining with Lord Golpu Kyen,
 Like a vulture soaring through the sky,
 came to U without any obstacles. ^19-13
@@ -2387,7 +2492,8 @@ Many different Dharmas are not necessary ^19-19
 the Precious Lord said joyfully,
 interest and devotion have the power to restore well-being.
 Moreover, not only in this life,
-from beginningless time we have had a profound connection Son, the arising of your good qualities
+from beginningless time we have had a profound connection
+Son, the arising of your good qualities
 depends on me alone, he said. ^19-20
 
 From our ancient connection, our minds have merged into one,
@@ -2413,7 +2519,8 @@ Having seen that very truth, I pay homage.
 Abandon the physical conduct of turning one’s back.
 At one time, holding a cane to his heart, he said: ^19-24
 
-This hearing-lineage Dharma, a wish-fulfilling jewel- Do not let it leak to those without fortune.
+This hearing-lineage Dharma, a wish-fulfilling jewel-
+Do not let it leak to those without fortune.
 In former times, when the precious Master lived,
 Except for a person such as myself, ^19-25
 
@@ -2425,7 +2532,8 @@ Not writing down the oral lineage in letters, ^19-26
 Nor revealing the symbolic lineage merely in words,
 Nor singing one’s meditative experiences as songs in the marketplace,
 Nor engaging in the eccentric ways of a mad ascetic,
-But, following exactly the words of the Buddha, the Lord, and the Guru, ^19-27
+But, following exactly the words of the Buddha, the
+Lord, and the Guru, ^19-27
 
 Having put the unmistaken meaning into practice,
 And according to the differing capacities of the discipleswho are worthy vessels,
@@ -2456,7 +2564,8 @@ I practiced the profound instructions on supplication.
 By practicing, I repaid the kindness of the six classes of mother beings. ^19-32
 
 At the cliffs of Götsang, I sealed myself in retreat.
-The continuous journey of outer distraction of activities – And the inner rope of dualistic grasping at apprehended objects and an apprehending subject are completely severed.
+The continuous journey of outer distraction of activities –
+And the inner rope of dualistic grasping at apprehended objects and an apprehending subject are completely severed.
 Within the mind of clear light, there is no distinction between meditative equipoise and post-meditation. ^19-33
 
 From the glorious, great Tilopa
@@ -2496,7 +2605,8 @@ Some saw him as the mandala of Cakrasamvara;
 Many saw him as an exalted sugata of former times;
 And some saw his single form appearing as many. ^19-40
 
-Some saw the two Precious Masters sitting face to face And engaging in profound Dharma discussion.
+Some saw the two Precious Masters sitting face to face
+And engaging in profound Dharma discussion.
 All these were miraculous manifestations of the Precious Master;
 And the Precious Master himself- Was a miraculous manifestation of mind. ^19-41
 
@@ -2565,7 +2675,8 @@ My children, keep these words within your hearts. ^19-53
 All of you who supplicate with devotion
 And render material service,
 Will attain fulfillment through your connection with me.
-Because I supplicated the Precious Lord, all the excellent qualities Of samsara and nirvana arose.
+Because I supplicated the Precious Lord, all the excellent qualities
+Of samsara and nirvana arose.
 You too should supplicate him-With all the strength you possess. ^19-54
 
 All those who place their hope and trust in me
@@ -2595,7 +2706,8 @@ Precious one, glorious protector of both samsara and nirvana; ^19-58
 For me, who supplicates you, and for all our aged mother beings, as limitless as space,
 O Father, arouse the mighty power of your immeasurable compassion.
 Hold us always in your unfailing love, without ever being separated from us,
-And guide us along the path of the supreme vehicle of Secret Mantra.
+And guide us along the path of the supreme vehicle of
+Secret Mantra.
 May our minds merge inseparably with your awakened mind.
 May we then become guides for the mother beings of the six realms. ^19-59
 
@@ -2604,7 +2716,8 @@ Whoever supplicates it will obtain everything they need and desire.
 Through hundreds of thousands- Of auspicious blessings arising from the power of your compassion,
 May the whole expanse of samsara and nirvana be filled with goodness and virtue. ^19-60
 
-May this precious teaching of the Dharma practice lineage Pervade the ocean of infinite realms.
+May this precious teaching of the Dharma practice lineage
+Pervade the ocean of infinite realms.
 May all karmic actions and afflictions that arise from ignorance be dispelled,
 And may the light of primordial wisdom remain forever. ^19-61
 
@@ -2627,7 +2740,9 @@ At U, the supreme Arya Chayulwa in the upper part,
 The incomparable Tashi Pel in this plain of Talkung,
 The well-known Thangpa Chenpo, to you I pay homage! ^20-3
 
-This Supplication of Condensed Birth stories of Taklungpa Chenpo is written by Bhikshu Namgyal Rinchen Pal Zangpo. ^20-4
+This Supplication of Condensed Birth stories of
+Taklungpa Chenpo is written by Bhikshu Namgyal
+Rinchen Pal Zangpo. ^20-4
 
 ## 21. Praise of the Previous Lives of TaklungThangpa Rinpoche ^21-0
 
@@ -2686,7 +2801,8 @@ May I follow the liberating life and example of the incomparable Jetsun Taklung 
 May I train in accordance with his life of liberation,
 And may I accomplish his three vajra secrets of enlightened body, speech, and mind. ^21-11
 
-This was written by the Buddhist monk Ngawang Tashi Paldrub. ^21-12
+This was written by the Buddhist monk Ngawang Tashi
+Paldrub. ^21-12
 
 ## 22. A Supplication Prayer Recounting the Liberating Life of Sangye WönDrakpa Pal Özer Zangpo, the Emanation of the Supreme Venerable Master ^22-0
 
@@ -2705,7 +2821,8 @@ I supplicate to you, who had trained in the two stages of tantric practice. ^22-
 You were born peacefully, without causing suffering to your mother.
 When your umbilical cord was cut, the sound changed into the music of a lute.
 You spoke twenty-one verses of the sacred Dharma.
-I supplicate you, who resembled the son of King Shuddhodana, the Buddha. ^22-4
+I supplicate you, who resembled the son of King
+Shuddhodana, the Buddha. ^22-4
 
 Surrounded by rainbow light, you rose into the sky and remained there.
 You recited the Añja mantra and the Sanskrit vowels and consonants.
@@ -2811,7 +2928,8 @@ I supplicate you, who resembled a universal wheel- turning monarch. ^22-24
 
 Jñānatapa escorted the sacred Dharma to your door.
 Upari offered a treasury of scriptures into your hands.
-You received the complete oral transmissions of all the Buddha’s teachings.
+You received the complete oral transmissions of all the
+Buddha’s teachings.
 I supplicate you, whose aspiration prayers possessed great power. ^22-25
 
 You constructed many supreme sacred supports representing enlightened body, speech, and mind.
@@ -2850,13 +2968,15 @@ Countless relics, sacred remains, and small reliquary stupas appeared.
 I supplicate you, whose signs of spiritual accomplishment were exceptional. ^22-32
 
 You realized the meaning of the syllable AH, which represents the unborn nature.
-You emanated from the enlightened mind of the primordial Buddha, the boundless ancestor of all Buddhas.
+You emanated from the enlightened mind of the primordial
+Buddha, the boundless ancestor of all Buddhas.
 You were the spiritual son who carried out the enlightened activities of all Buddhas of the ten directions.
 I supplicate you, whose excellent name was truly meaningful. ^22-33
 
 In this five-hundred-year period, you were as rare as the udumbara flower.
 You were supreme among those who worked for the teachings of Buddha Shakyamuni.
-You were a spiritual son directly emanated from Avalokiteshvara.
+You were a spiritual son directly emanated from
+Avalokiteshvara.
 I supplicate you, the emanation of the Buddha. ^22-34
 
 The great sound of your Dharma teachings spread throughout the ten directions.
@@ -2898,7 +3018,8 @@ Please remove the chronic disease of attachment to one-sided views and disturbin
 Please guide me onto the path of liberation through pure ethical discipline.
 Please show me the ultimate view of the profound path.
 Please cause the tender sprout of bodhicitta, the seed of Buddhahood, to grow within me.
-Please enable me to attain the final result of omniscient Buddhahood. ^22-42
+Please enable me to attain the final result of omniscient
+Buddhahood. ^22-42
 
 This was composed by Skuzhang Lha Sonam Pal. ^22-43
 
@@ -2927,7 +3048,8 @@ May they be free from suffering and the causes of suffering! ^23-10
 
 May they be free from suffering and never be separated from happiness! ^23-11
 
-May they be directly seen the equanimity, the nature (dharmata) of all phenomena free from the three afflictions: attachment, aversion, and bewilderment! ^23-12
+May they be directly seen the equanimity, the nature
+(dharmata) of all phenomena free from the three afflictions: attachment, aversion, and bewilderment! ^23-12
 
 May all beings have happiness
 May they be free from suffering
@@ -2957,21 +3079,26 @@ That in turn, produced a rim at the navel. ^23-22
 With holding incense and various flowers, by playing the cymbals (rol-mo), the invitation is: ^23-23
 
 The blessings of the ocean of jewels and the two accumulations
-Amassed with directly examined, the true expanse (dharmadhatu)
+Amassed with directly examined, the true expanse
+(dharmadhatu)
 Through inconceivable great truth of total purity
 The entire arranged ornaments of the fields of the ten directions ^23-24
 
 The beauty of which is altogether established here in this place,
-The Great Sage (mahamuni) is the lord of the unrivalled teachings Along with the retinues of assembly of the noble elders (sthavira)
+The Great Sage (mahamuni) is the lord of the unrivalled teachings
+Along with the retinues of assembly of the noble elders (sthavira)
 Please come and sit through the power of spiritual commitment! ^23-25
 
 Through your compassion, the beings or trainees in this age of strife (kaliyugam)
-Leading them on the path of complete liberation (vimukti-marga), you are the protector of beings
+Leading them on the path of complete liberation
+(vimukti-marga), you are the protector of beings
 The supreme Buddha (Muni) and the great Elders (sthavira)
 Together with the retinues, please come to this very place! ^23-26
 
 The protector of beings, the lion of the Shakyas (Shakyasimha),
-Have placed the teachings of the Buddha in his hand Opening the chest of precious teachings and discourses The great arhat Elders, please be seated! ^23-27
+Have placed the teachings of the Buddha in his hand
+Opening the chest of precious teachings and discourses
+The great arhat Elders, please be seated! ^23-27
 
 Since you are invited to spread the sacred dharma,
 For the benefit of beings, I make offerings, please come!
@@ -2988,7 +3115,8 @@ For the benefit of beings, I make offerings, please come!
 The excellent abandonment and pristine wisdom, even the Buddha,
 Due to the beings to be tamed, appears in the form of a Hearer (Shravaka), ^23-30
 
-Protecting the dharma of exceptional enlightened activities – The sixteen Elders, please come here and be seated!
+Protecting the dharma of exceptional enlightened activities –
+The sixteen Elders, please come here and be seated!
 Requesting lay practitioners (upasaka) to protect and listening to the true words,
 I pay homage to all the retinues of the Three Jewels present here! ^23-31
 
@@ -2999,7 +3127,8 @@ Play cymbals (sil-nyen). They have arrived from their abodes as invited through 
 
 In the center, on a lion throne, lotus, and moon (disk), ^23-34
 
-The Bhagavat, Tathagata Arhat, completely perfect Buddha (samyaksambuddha) Shakyamuni, the color of his body is likened to that of a refined gold, His right hand is in earth-touching mudra and left hand is in the mudra of equanimity, ^23-35
+The Bhagavat, Tathagata Arhat, completely perfect
+Buddha (samyaksambuddha) Shakyamuni, the color of his body is likened to that of a refined gold, His right hand is in earth-touching mudra and left hand is in the mudra of equanimity, ^23-35
 
 His legs are in vajra posture, ^23-36
 
@@ -3010,9 +3139,11 @@ And eighty minor marks, ^23-38
 Donning the three types of saffron dharma robes
 The light of which illuminates throughout all world realms. ^23-39
 
-The four petals in the east resides the noble Mahāsthvira Aṅgaja, ^23-40
+The four petals in the east resides the noble Mahāsthvira
+Aṅgaja, ^23-40
 
-Holding an incense pot in his folded palms and a whisk (cāmaram) in his left armpit, ^23-41
+Holding an incense pot in his folded palms and a whisk
+(cāmaram) in his left armpit, ^23-41
 
 The two hands of Sthavira Ajita are in the mudrā of equanimity ^23-42
 
@@ -3078,7 +3209,9 @@ holding a victory banner and mongoose, ^23-71
 
 All four of them are adorned with the five types of armors and silken garments, and together with assembly of retinues, they clearly appear to completely guard the teachings. ^23-72
 
-With this perform consecration of offerings, two water (offerings), cymbals, the seven precious royal emblems, the five desirable sense objects, the auspicious substances and signs, maṇḍalam, and seven branch prayer. To consecrate the offerings by reciting the Recollection of the Three Jewels, eight verses of “when you were born, chief of bipeds (humans),” and so on, is: ^23-73
+With this perform consecration of offerings, two water
+(offerings), cymbals, the seven precious royal emblems, the five desirable sense objects, the auspicious substances and signs, maṇḍalam, and seven branch prayer. To consecrate the offerings by reciting the Recollection of the Three
+Jewels, eight verses of “when you were born, chief of bipeds (humans),” and so on, is: ^23-73
 
 OṃAḥHūṃ(Three times) ^23-74
 
@@ -3086,7 +3219,8 @@ The truth of the Three Jewels, ^23-75
 
 All the buddhas and bodhisattvas, ^23-76
 
-The nature of various precious grounds equal to that of the palms of one’s hand, blessed by the great noble Elders (sthaviraḥ), ^23-77
+The nature of various precious grounds equal to that of the palms of one’s hand, blessed by the great noble
+Elders (sthaviraḥ), ^23-77
 
 The pure, delightful, and pleasant dwelling place of noble ones ^23-78
 
@@ -3266,7 +3400,8 @@ To every single one of you, I bow in homage;
 Devotion fills my body, speech and mind. ^23-141
 
 Through the power of this prayer, aspiring to Good Action,
-All the victorious ones appear, vivid here before my mind And I multiply my body as many times as atoms in the universe,
+All the victorious ones appear, vivid here before my mind
+And I multiply my body as many times as atoms in the universe,
 Each one bowing in prostration to all the buddhas. ^23-142
 
 2. Offering ^23-143
@@ -3293,7 +3428,8 @@ Arranged in perfect symmetry. ^23-147
 
 Then the vast and unsurpassable offerings—
 Inspired by my devotion to all the buddhas, and
-Moved by the power of my faith in Good Actions— I prostrate and offer to all you victorious ones. ^23-148
+Moved by the power of my faith in Good Actions—
+I prostrate and offer to all you victorious ones. ^23-148
 
 (3) Confession of Non-Virtuous Deeds ^23-149
 
@@ -3304,11 +3440,13 @@ Before you, I confess and purify each and every one. ^23-150
 
 (4) Rejoicing Other’s Good Deeds ^23-151
 
-With a heart full of delight, I rejoice at all the merits Of buddhas and bodhisattvas,
+With a heart full of delight, I rejoice at all the merits
+Of buddhas and bodhisattvas,
 Pratyekabuddhas, those in training and the arhats beyond training,
 And every living being, throughout the entire universe. ^23-152
 
-(5) Imploring the Buddhas to Turn the Wheel of Dharma ^23-153
+(5) Imploring the Buddhas to Turn the Wheel of
+Dharma ^23-153
 
 You who are like beacons of light shining through the worlds,
 Who passed through the stages of enlightenment, to attain buddhahood, freedom from all attachment,
@@ -3424,14 +3562,16 @@ abiding on the level where all sentient beings are seen, ^24-45
 
 all these are the authentic and supreme qualities of the embodied form of the Buddha Bhagavan. ^24-46
 
-The holy Dharma is good at the beginning, good in the middle and good at the end, ^24-47
+The holy Dharma is good at the beginning, good in the
+middle and good at the end, ^24-47
 
 It is excellent in meaning, in words, and in syllables, ^24-48
 
 It is unadulterated, utterly complete, absolutely pure,
 and absolutely purifying, ^24-49
 
-it is taught perfectly by the Accomplished Transcendent Conqueror. ^24-50
+it is taught perfectly by the Accomplished Transcendent
+Conqueror. ^24-50
 
 it brings perfect vision, ^24-51
 
@@ -3482,7 +3622,8 @@ you took seven steps upon this great earth and declared,
 You spoke: ‘I am supreme in this world.’
 At that moment, wise sage, I pay homage to you. ^24-71
 
-First, you descended from the heavenly realm of Tushita and in Rajgir, you entered your mother’s womb.
+First, you descended from the heavenly realm of Tushita
+and in Rajgir, you entered your mother’s womb.
 In the grove of Lumbini, the Mighty Sage was born;
 I pay homage to the Bhagavan, the God of Gods. ^24-72
 
@@ -3528,7 +3669,8 @@ May the study and practice of the holders of the teachings – masters and disci
 May there be auspiciousness to remain the teachings forever! ^24-80
 
 I bow my head at the feet of Bhagavat, Thathagata,
-Arhat, the perfect and complete enlightened Shakyamuni Buddha ^24-81
+Arhat, the perfect and complete enlightened
+Shakyamuni Buddha ^24-81
 
 Bowing down the head ^24-82
 
@@ -3557,7 +3699,8 @@ Completely realized by you, the teacher, to you I pay homage! ^24-89
 
 The teachings of scriptures and realizations spread throughout all directions, and always –
 May the holders of the teachings live a firm and long life and spread their activities!
-Come to the glory of benefit and happiness for beings equal to the sky Also, may all swiftly attain the unsurpassable wisdom! ^24-90
+Come to the glory of benefit and happiness for beings equal to the sky
+Also, may all swiftly attain the unsurpassable wisdom! ^24-90
 
 The only medicine for the suffering of beings
 Ang the source of all bliss,
@@ -3596,7 +3739,8 @@ With this offering, recite any one of the condensed or extensive supplications i
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – definitely accepting the words of aryas to obey the oral transmissions. ^24-99
 
-In the precious Snow Mountain Kailash, the Great SthaviraArya Angaja resides with surrounded by one thousand and three hundred arhat retinues, at your feet,
+In the precious Snow Mountain Kailash, the Great
+SthaviraArya Angaja resides with surrounded by one thousand and three hundred arhat retinues, at your feet,
 I always pay homage! ^24-100
 
 I make offerings. I take refuge. Please bless us. ^24-101
@@ -3619,8 +3763,10 @@ Holding an incense pot and a tail whisk that dispel all afflictions,
 To one thousand and three hundred arhats, I bow! ^24-105
 
 To always make offerings to the victors of the ten directions,
-Higher training in discipline, meditative stabilization (samadhi), and wisdom,
-May they increase, fully expand, firm, and even in dream – May the prophecies of Sugathas be obtained! ^24-106
+Higher training in discipline, meditative stabilization
+(samadhi), and wisdom,
+May they increase, fully expand, firm, and even in dream –
+May the prophecies of Sugathas be obtained! ^24-106
 
 The only medicine for the suffering of beings
 Ang the source of all bliss,
@@ -3718,7 +3864,8 @@ I prostrate and offer to all Victorious Ones. ^24-128
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-129
 
-In the face of Mountain Forest, at the mountain cave called the seven-petalled, Saptaparna resides Arya Maha-sthaviraVanavasin surrounded by one thousand and four hundred arhats, to you, I always pay homage! ^24-130
+In the face of Mountain Forest, at the mountain cave called the seven-petalled, Saptaparna resides Arya
+Maha-sthaviraVanavasin surrounded by one thousand and four hundred arhats, to you, I always pay homage! ^24-130
 
 I make offerings. I take refuge. Please bless me! ^24-131
 
@@ -3806,7 +3953,8 @@ Gathering of fortunate retinues and holding golden earrings,
 Together with one thousand and two hundred arhats,
 to you, I bow! ^24-150
 
-Be endowed with loving-kindness and purify the pure Buddha fields,
+Be endowed with loving-kindness and purify the pure
+Buddha fields,
 Lead the beings who hold the sacred dharma on the three yanas,
 The intent of the victors, Khenpos, Acharyas, and Sanghas,
 May they be accompanied by the bodhisattvas! ^24-151
@@ -3846,7 +3994,8 @@ I prostrate and offer to all Victorious Ones. ^24-158
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-159
 
-In the island of Simhala, Simhaladvipa resides the Great Noble Sthavira Vajriputra surrounded by one thousand arhat retinues, at your feet, I always pay homage! ^24-160
+In the island of Simhala, Simhaladvipa resides the
+Great Noble Sthavira Vajriputra surrounded by one thousand arhat retinues, at your feet, I always pay homage! ^24-160
 
 I make offerings. I take refuge. Please bless me! ^24-161
 
@@ -3908,7 +4057,8 @@ I prostrate and offer to all Victorious Ones. ^24-173
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-174
 
-In the island of Yamuna River, resides the Great Noble Sthavira Bhadra surrounded by one thousand and two hundred arhats, at your feet, I always pay homage! ^24-175
+In the island of Yamuna River, resides the Great Noble
+Sthavira Bhadra surrounded by one thousand and two hundred arhats, at your feet, I always pay homage! ^24-175
 
 I make offerings. I take refuge. Please bless me! ^24-176
 
@@ -3971,7 +4121,8 @@ I prostrate and offer to all Victorious Ones. ^24-188
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-189
 
-In the supremely sacred land of Kashmir resides the Great Noble Sthavira Kanakavatsa surrounded by five hundred arhat retinues, at your feet, I always pay homage! ^24-190
+In the supremely sacred land of Kashmir resides the Great
+Noble Sthavira Kanakavatsa surrounded by five hundred arhat retinues, at your feet, I always pay homage! ^24-190
 
 I make offerings. I take refuge. Please bless me! ^24-191
 
@@ -4027,7 +4178,8 @@ I prostrate and offer to all Victorious Ones. ^24-202
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-203
 
-In the western continent of Godaniya, resides the Great Noble SthaviraKanaka Bharadvaja surrounded by seven hundred arhat retinues, at your feet, I always pay homage! ^24-204
+In the western continent of Godaniya, resides the
+Great Noble SthaviraKanaka Bharadvaja surrounded by seven hundred arhat retinues, at your feet, I always pay homage! ^24-204
 
 I make offerings. I take refuge. Please bless me! ^24-205
 
@@ -4088,7 +4240,8 @@ I prostrate and offer to all Victorious Ones. ^24-217
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-218
 
-In the northern continent of Kurava resides the Great Noble Sthavira Bakula surrounded by nine hundred arhat retinues, at your feet, I always pay homage! ^24-219
+In the northern continent of Kurava resides the Great
+Noble Sthavira Bakula surrounded by nine hundred arhat retinues, at your feet, I always pay homage! ^24-219
 
 I make offerings. I take refuge. Please bless me! ^24-220
 
@@ -4149,7 +4302,8 @@ I prostrate and offer to all Victorious Ones. ^24-232
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-233
 
-In the continent of Priyangu resides the Great Noble Sthavira Rahula surrounded by one thousand and two hundred arhat retinues, at your feet, I always pay homage! ^24-234
+In the continent of Priyangu resides the Great Noble
+Sthavira Rahula surrounded by one thousand and two hundred arhat retinues, at your feet, I always pay homage! ^24-234
 
 I make offerings. I take refuge. Please bless me! ^24-235
 
@@ -4205,7 +4359,8 @@ I prostrate and offer to all Victorious Ones. ^24-246
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-247
 
-At the Vulture Peak Mountain, Gridrakuta, resides the Great Noble Sthavira Chudapanthaka surrounded by one thousand and six hundred arhat retinues, at your feet, I always pay homage! ^24-248
+At the Vulture Peak Mountain, Gridrakuta, resides the
+Great Noble Sthavira Chudapanthaka surrounded by one thousand and six hundred arhat retinues, at your feet, I always pay homage! ^24-248
 
 I make offerings. I take refuge. Please bless me! ^24-249
 
@@ -4222,7 +4377,8 @@ In the state of great concentration bind with meditation mudra,
 To one thousand and six hundred arhats, I bow! ^24-252
 
 At the Vulture Peak, Sthavira Chudapanthaka,
-Through his meditation mudra, all beings in that direction – The mass of fire-like afflictions and sufferings are pacified,
+Through his meditation mudra, all beings in that direction –
+The mass of fire-like afflictions and sufferings are pacified,
 To one thousand and six hundred arhats, I bow! ^24-253
 
 In the meditative absorption of a hundred, a thousand,
@@ -4266,7 +4422,8 @@ I prostrate and offer to all Victorious Ones. ^24-261
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-262
 
-In the eastern continent of Videha resides the Great Noble SthaviraPindola Bhradvajasurrounded by one thousand arhat retinues, at your feet, I always pay homage! ^24-263
+In the eastern continent of Videha resides the Great
+Noble SthaviraPindola Bhradvajasurrounded by one thousand arhat retinues, at your feet, I always pay homage! ^24-263
 
 I make offerings. I take refuge. Please bless me! ^24-264
 
@@ -4391,7 +4548,8 @@ Protecting the sacred teachings of the Bhagavat Buddha and for the glorious fiel
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-292
 
 At the King of Mountains with Wide Extent,
-Vipulaparshva resides the Great Noble Sthavira Nagasena surrounded by one thousand and two hundred arhat retinues, at your feet, I always pay homage! ^24-293
+Vipulaparshva resides the Great Noble Sthavira
+Nagasena surrounded by one thousand and two hundred arhat retinues, at your feet, I always pay homage! ^24-293
 
 I make offerings. I take refuge. Please bless me! ^24-294
 
@@ -4452,7 +4610,8 @@ I prostrate and offer to all Victorious Ones. ^24-306
 Protecting the sacred teachings of the Bhagavat Buddha and for the glorious field of merits of all the gods and humans, the Tathagata Shakyamuni have commanded,
 and without passing into nirvana, remaining in this world in real – accepting the words of aryas to obey the oral transmissions. ^24-307
 
-At the King of Mountains Bihula resides the Great Noble Sthavira Gopaka surrounded by one thousand and four hundred arhat retinues, at your feet, I always pay homage! ^24-308
+At the King of Mountains Bihula resides the Great
+Noble Sthavira Gopaka surrounded by one thousand and four hundred arhat retinues, at your feet, I always pay homage! ^24-308
 
 I make offerings. I take refuge. Please bless me! ^24-309
 
@@ -4740,11 +4899,13 @@ This is the seven-branch practice along with aspirations. ^24-379
 
 The assembly of Arya Arhats, the emanation of the buddhas,
 Protecting the teachings without passing into nirvana,
-By the sixteen Elders who are the real Three Jewels – Bless to remain the teachings forever! ^24-380
+By the sixteen Elders who are the real Three Jewels –
+Bless to remain the teachings forever! ^24-380
 
 By the sixteen Elders who are the embodiment of compassion –
 Liberate the retinues from the ocean of samsara, and free from afflictions,
-By the assembly of sixteen thousand and four hundred – Bless to remain the teachings forever! ^24-381
+By the assembly of sixteen thousand and four hundred –
+Bless to remain the teachings forever! ^24-381
 
 Arhat who is the merit of all beings,
 He who possessed with lineage and perfect conduct,
@@ -4866,21 +5027,27 @@ He who pleased countless Lord Buddhas,
 His mind stream is trained in the path of the six perfections,
 I make supplication, please bless me! ^25-21
 
-He who have perfected the five paths and ten grounds Is the supreme and glorious Bodhisattva DawöShönu (Youthful Moon Light),
+He who have perfected the five paths and ten grounds
+Is the supreme and glorious Bodhisattva DawöShönu
+(Youthful Moon Light),
 Who was entrusted by the Buddha as the guardian of Snow Land,
 I make supplication, please bless me! ^25-22
 
-The four major and eight minor schools of the glorious Kagyu The origin of them is like that of the Ever Cool Lake (Manosarovar),
+The four major and eight minor schools of the glorious Kagyu
+The origin of them is like that of the Ever Cool Lake
+(Manosarovar),
 To the incomparable Lord Physician of Dhakpo,
 I make supplication, please bless me! ^25-23
 
-The combined rivers of Kadampa and Mahāmudrā tradition Pioneered the system of sūtra and tantra in union
+The combined rivers of Kadampa and Mahāmudrā tradition
+Pioneered the system of sūtra and tantra in union
 To the universal splendor of the ocean of glorious Kagyu masters
 I make supplication, please bless me! ^25-24
 
 His body is immaculate abiding in chastity with tamed behavior
 His speech shows infinite gates of dharma taming whoever needs to be tamed
-His mind is the ocean of samādhi, to you, the universal splendor I make supplication, please bless me! ^25-25
+His mind is the ocean of samādhi, to you, the universal splendor
+I make supplication, please bless me! ^25-25
 
 Exhaustion, outshine, and the like,
 Miraculous powers and other qualities as it it
@@ -4889,18 +5056,23 @@ I make supplication, please bless me! ^25-26
 
 At present time, in the western world
 The glory endowed with a hundred joy
-Where the great regent of the lord victorious ones resides I make supplication, please bless me! ^25-27
+Where the great regent of the lord victorious ones resides
+I make supplication, please bless me! ^25-27
 
 In the future, in that very pure realm
-Attaining enlightenment with immaculate light (Vimalaprabhaḥ)
+Attaining enlightenment with immaculate light
+(Vimalaprabhaḥ)
 To the gathering of billions of countless retinues
 I make supplication, please bless me! ^25-28
 
 Those who hold your (lord) command lineage,
 Although the assembly of retinues are born first
-You comfort us a sigh (of relief) of thorough liberation I make supplication, please bless me! ^25-29
+You comfort us a sigh (of relief) of thorough liberation
+I make supplication, please bless me! ^25-29
 
-The great regent of the sixth glorious lord of the family Threefold venerable Marpa, Milarepa, and Dhakpo Rinpoche, the protectors,
+The great regent of the sixth glorious lord of the family
+Threefold venerable Marpa, Milarepa, and Dhakpo
+Rinpoche, the protectors,
 To the pristine wisdom minds that pervade throughout saṃsāra and nirvāṇa
 I make supplication, please bless me! ^25-30
 
@@ -4925,36 +5097,47 @@ Wandering in this ocean of suffering
 Grant your blessings to develop renunciation! ^25-34
 
 To the infallible refuge, the Three Jewels
-Entrusting in them as the protector and defender forever To lead all beings equal to the sky to the awakened state Grant your blessings to cultivate that mind within! ^25-35
+Entrusting in them as the protector and defender forever
+To lead all beings equal to the sky to the awakened state
+Grant your blessings to cultivate that mind within! ^25-35
 
-To confess the unfavourable misdeeds and downfalls And accrue the two favourable accumulations
+To confess the unfavourable misdeeds and downfalls
+And accrue the two favourable accumulations
 The exertion of devoted application is the supreme
 Grant your blessings to always apply it! ^25-36
 
 The unsurpassable swift path of the great secret
-The supreme method of which is the devotion in gurus Having received the empowerment of true transference of blessings,
+The supreme method of which is the devotion in gurus
+Having received the empowerment of true transference of blessings,
 Grant your blessings to liberate on this very seat! ^25-37
 
-The supreme essence of the ocean of sūtra and tantra teachings The path left by the ocean of glorious siddhas,
-Through the secret path of innateness free from all extremes Grant your blessings to liberate them right now! ^25-38
+The supreme essence of the ocean of sūtra and tantra teachings
+The path left by the ocean of glorious siddhas,
+Through the secret path of innateness free from all extremes
+Grant your blessings to liberate them right now! ^25-38
 
 We, deprived by the twofold merit
-Because we are born in the utmost end of degenerated time Having expelled the outer and inner conditions of obstacles Grant your blessings to accomplish the dharma appropriately! ^25-39
+Because we are born in the utmost end of degenerated time
+Having expelled the outer and inner conditions of obstacles
+Grant your blessings to accomplish the dharma appropriately! ^25-39
 
 Harmfully seeking by demonic spirits (bhūtaḥ)
 The excellent scriptures of the practice lineage are close to sleep
-Having marshalled the force through your compassion Grant your blessings so that I can follow you! ^25-40
+Having marshalled the force through your compassion
+Grant your blessings so that I can follow you! ^25-40
 
 May the holders of the teaching ever remain for hundreds of eons
 May their virtuous activities increase
-And having properly trained from the holders of the lineage Grant your blessings so that the supreme teachings will flourish! ^25-41
+And having properly trained from the holders of the lineage
+Grant your blessings so that the supreme teachings will flourish! ^25-41
 
 All the vast kingdoms of central and outskirts
 May they engage in the glory of the ten virtues
 May their youth of perfection become widespread
 And may the prosperities of benefit and bliss blaze with splendor! ^25-42
 
-At the request made by DakpaTenphel with a basis offering (of body, speech, and mind), who is faithful and diligent, born in the chain of descendants of the thirteen Theru lineage masters. A monk named Ngawang Lekdrup made this supplication. May the teachings of the practice lineage be ever increased!
+At the request made by DakpaTenphel with a basis offering (of body, speech, and mind), who is faithful and diligent, born in the chain of descendants of the thirteen Theru lineage masters. A monk named
+Ngawang Lekdrup made this supplication. May the teachings of the practice lineage be ever increased!
 Maṅgalam | ^25-43
 
 ## 26. Guruyoga of Marpa, Milarepa, and DhakpoLhaje, the Chiefs of the Teachings of Practice Lineage, Swift Bestowal of Siddhis ^26-0
@@ -4971,40 +5154,54 @@ Her elbow is adorned with a trident (khatvankṅgaḥ)
 and legs bending and stretching ^26-2
 
 Sitting on the lotus and sun (disc) and in the middle of the mass of fire,
-Amidst the ocean-like cloud offerings in the sky before oneself On the lotus and moon (disc) of the precious lion throne DhakpoLhaje (a physican from Dhakpo) who is the crown of Kagyu tradition ^26-3
+Amidst the ocean-like cloud offerings in the sky before oneself
+On the lotus and moon (disc) of the precious lion throne
+DhakpoLhaje (a physican from Dhakpo) who is the crown of Kagyu tradition ^26-3
 
 Donning accoutrement of chastity (brahma-like conduct) with white glowing with a tinge of red
 A meditation hat on his head and his two hands are in meditation posture,
 On which he holds wish-fulfilling gem that fulfills all wishesand desires
 Surrounded by ocean of siddhas of the four major and eight minor schools ^26-4
 
-In the expanse of rainbow light on the crown of the head On the lotus throne of sa-re skin cushion
-The lord Milarepa, the chief of ocean-like siddhas in the snow land In a pale blue complexion wearing a white cotton cloak ^26-5
+In the expanse of rainbow light on the crown of the head
+On the lotus throne of sa-re skin cushion
+The lord Milarepa, the chief of ocean-like siddhas in the snow land
+In a pale blue complexion wearing a white cotton cloak ^26-5
 
 His hair is matted and right hand rests on his ear
 His left hand is in meditation posture and holds a skull cup filled with the nectar (amṛta-kapālaḥ)
-The two sun-like and the moon-like heart sons as his retinues The four great sons or disciples and hosts of celestial accomplished practitioners ^26-6
+The two sun-like and the moon-like heart sons as his retinues
+The four great sons or disciples and hosts of celestial accomplished practitioners ^26-6
 
-Sitting in the expanse of circled net of the five-colored lights On the crown is the lotus stem, sun and moon
+Sitting in the expanse of circled net of the five-colored lights
+On the crown is the lotus stem, sun and moon
 Where glorious Heruka, a delightful translator (Lotsawa)
 A radiance of maroon color with angrily smiling and calm ^26-7
 
-Donning a silken brocade cloak and in his two hands Are in earth-touching mudrā that outshines the saṃsāra and nirvāṇa Surrounded by retinues of heart sons, such as the four great pillars (disciples), and so on
+Donning a silken brocade cloak and in his two hands
+Are in earth-touching mudrā that outshines the saṃsāra and nirvāṇa
+Surrounded by retinues of heart sons, such as the four great pillars (disciples), and so on
 The two supreme gazes on the top of the head are Vajradhara ^26-8
 
 The ocean of siddhas of India and Tibet gather like cloudbanks,
-Surrounded by them and in front of which is a meditation deity To the right is the Buddha and behind is the teachings of scripture and realization
+Surrounded by them and in front of which is a meditation deity
+To the right is the Buddha and behind is the teachings of scripture and realization
 To the left is the Sangha and below are ḍākas and ḍākinīs ^26-9
 
 Of the three places endowed with wisdom eyes
 And the ocean of Vajra Dharma protectors gathered like cloudbanks
-Indivisibility of samaya and wisdom from beginningless Dwelling in the state of immovable great joy! ^26-10
+Indivisibility of samaya and wisdom from beginningless
+Dwelling in the state of immovable great joy! ^26-10
 
 With this, make supplication. To amass the accumulation is: ^26-11
 
-To the hosts of guru devas, embodiment of the Three Jewels I make prostrations equal to the number of dust motes in the universe I offer offering clouds of Samantabhadra of my body and possessions I confess all misdeeds and negative actions ^26-12
+To the hosts of guru devas, embodiment of the Three Jewels
+I make prostrations equal to the number of dust motes in the universe
+I offer offering clouds of Samantabhadra of my body and possessions
+I confess all misdeeds and negative actions ^26-12
 
-I rejoice all the virtuous deeds in saṃsāra and nirvāṇa Always turning the dharma wheel of the supreme vehicle (yāna)
+I rejoice all the virtuous deeds in saṃsāra and nirvāṇa
+Always turning the dharma wheel of the supreme vehicle (yāna)
 I pray to remain always without passing into nirvāṇa!
 Cultivating the supreme aspirational and engaged mind of enlightenment (bodhicitta) ^26-13
 
@@ -5012,21 +5209,27 @@ Through this virtue, may all beings swiftly attain enlightenment! (already trans
 
 [Ed: no English translation given in source] ^26-15
 
-In the kapāla of vast expanse pervading saṃsāra and nirvāṇa The awareness wisdom of the five meats and the five nectars Through the offering clouds of Samantabhadra in union May it spread in the entire realm of saṃsāra and nirvāṇa! ^26-16
+In the kapāla of vast expanse pervading saṃsāra and nirvāṇa
+The awareness wisdom of the five meats and the five nectars
+Through the offering clouds of Samantabhadra in union
+May it spread in the entire realm of saṃsāra and nirvāṇa! ^26-16
 
 OM AH HUNG (Recite three times) ^26-17
 
 Offering the first portion of the Ganachakra: ^26-18
 
 To the host of glorious root and lineage gurus
-I make Tsok offering of the uncontaminated great bliss And confess the samaya breaches and violations of the exalted body, speech, and mind
+I make Tsok offering of the uncontaminated great bliss
+And confess the samaya breaches and violations of the exalted body, speech, and mind
 Please bestow the supreme siddhis of the four empowerments and wisdom! ^26-19
 
 To the host of meditation deities of the three secrets
-I make infinite offering clouds of outer, inner, and secret Having purified all the breaches and violations of individual liberation (pratimokṣa), bodhisattva, and secret mantra
+I make infinite offering clouds of outer, inner, and secret
+Having purified all the breaches and violations of individual liberation (pratimokṣa), bodhisattva, and secret mantra
 And please bestow the ocean of supreme and common siddhis! ^26-20
 
-Vajra dharma protectors, host of haughty deities of the three lineages Delightfully enjoying their favourable feast (Tsok)
+Vajra dharma protectors, host of haughty deities of the three lineages
+Delightfully enjoying their favourable feast (Tsok)
 Dispel the adverse conditions of the teachings and holders of the teachings
 Please act to accomplish the four activities without obstructions! ^26-21
 
@@ -5035,19 +5238,26 @@ In the middle, enjoy receiving siddhis. gather the leftovers of the feast. ^26-2
 OM AH HUNG bless the leftovers ^26-23
 
 Abide by Vajrayāna samayas
-All good and bad takers of Tormas who are enthralled to the leftovers Accept the leftover sacred substances, the offering clouds that please the senses
+All good and bad takers of Tormas who are enthralled to the leftovers
+Accept the leftover sacred substances, the offering clouds that please the senses
 And act to accomplish the entrusted activities without obstructions! ^26-24
 
 Receiving the Four Empowerments: ^26-25
 
-With a strong devotion, the root and lineage masters Delightful light melts and dissolved in the renowned world At the four places of incomparable DhakpoLhaje’s body From a white Oṃ, a red Aḥ, a dark blue Hūṃ, and a yellow Ho ^26-26
+With a strong devotion, the root and lineage masters
+Delightful light melts and dissolved in the renowned world
+At the four places of incomparable DhakpoLhaje’s body
+From a white Oṃ, a red Aḥ, a dark blue Hūṃ, and a yellow Ho ^26-26
 
-The nectar of light rays emerged gradually and instantly Dissolves into one’s own four places (centres) and purifies the four obscurations
+The nectar of light rays emerged gradually and instantly
+Dissolves into one’s own four places (centres) and purifies the four obscurations
 Receiving the four empowerments and mastery over meditating on the four paths
 That nourishes the four kāyas and guru dissolves into light ^26-27
 
-With dissolving into oneself, the four types of guru’s vajra Loosely place them inseparably with one’s three gates,
-The threefold sights, sounds, and thoughts are the great play of guru It is the great bliss which is uncontrived and spontaneously present! ^26-28
+With dissolving into oneself, the four types of guru’s vajra
+Loosely place them inseparably with one’s three gates,
+The threefold sights, sounds, and thoughts are the great play of guru
+It is the great bliss which is uncontrived and spontaneously present! ^26-28
 
 The Dedication: ^26-29
 
@@ -5074,11 +5284,14 @@ This is written by Ngawang Lodrö as set forth/ propounded by Ngawang Lekdrup to
 
 ## 27. This is the Guru Yoga based on the Taklungpa’s Protector Achala, called the Swift Path to Union (Guruyoga Relying on the Protector Akṣobhya of Taklungpa, Swift Path to Union) ^27-0
 
-I prostrate at the feet of the glorious holy Guru Mangalashri! If you wish to practice this Guru Yoga of the Great Taklungpa, relying on the Protector Achala,
+I prostrate at the feet of the glorious holy Guru
+Mangalashri! If you wish to practice this Guru Yoga of the Great Taklungpa, relying on the Protector Achala,
 make yourself comfortable on your seat, and endowed with Bodhicitta, recite this: ^27-1
 
 The human birth with leisure and endowments is more difficult to find than the wish-fulfilling jewel
-This life is adventitious perishes by impermanent conditions The suffering of saṃsāra is reversed from the great fire pit Please bless to adopt the virtues can discard the non-virtues, ^27-2
+This life is adventitious perishes by impermanent conditions
+The suffering of saṃsāra is reversed from the great fire pit
+Please bless to adopt the virtues can discard the non-virtues, ^27-2
 
 In the guru, meditation deity, and the Three Jewels
 All motherly beings and I take refuge!
@@ -5087,7 +5300,8 @@ Please bless us to develop in the aspirational and engaged mind of enlightenment
 
 Purifying karma and afflictions of the three gates along with their habitual patterns
 Restoring the breached samayas, pure and clean
-Offering one’s body and possessions to the gurus and gods Please bless us to complete the accumulation of merit and wisdom! ^27-4
+Offering one’s body and possessions to the gurus and gods
+Please bless us to complete the accumulation of merit and wisdom! ^27-4
 
 On one’s crown before the sky
 A lion throne, a lotus, method and wisdom, on the sun and the moon,
@@ -5099,7 +5313,9 @@ His right hand is in earth-touching mudrā of destroying hordes of demons (māra
 His left hand is in meditative posture resting in immovable samādhi
 A delightful smiling face gazing towards beings to be trained ^27-6
 
-His two legs in vajra posture with sitting straighten up Surrounded by gurus, meditative deities, buddhas, dharma The noble Sanghas, heroes (ḍāka), and ḍākinīs,
+His two legs in vajra posture with sitting straighten up
+Surrounded by gurus, meditative deities, buddhas, dharma
+The noble Sanghas, heroes (ḍāka), and ḍākinīs,
 The ocean of object of refuge, the Three Jewels,
 without exception, ^27-7
 
@@ -5110,14 +5326,18 @@ Meaningful whoever is encountered and abiding in the essence of supremacy ^27-8
 
 Myself and others, all beings infinite as space
 Prostrate by emanating the body as many as there are atoms in the universe!
-The real, imaginary, outer, and inner offering clouds Always make inexhaustible offerings. ^27-9
+The real, imaginary, outer, and inner offering clouds
+Always make inexhaustible offerings. ^27-9
 
 All the misdeeds and obscurations generated by the causes of the three times
-I confess with regret and will restrain from doing it again The accumulation of merits of the victors and their offspring and all living beings
+I confess with regret and will restrain from doing it again
+The accumulation of merits of the victors and their offspring and all living beings
 Whatever is accumulated, I rejoice ^27-10
 
-The continuity of the hearing transmission of profound and swift path Always act to remain firm as long as it does not degenerate!
-The Lamp of the World who intends to pass into nirvāṇa I make supplication for them to remain for incalculable eons! ^27-11
+The continuity of the hearing transmission of profound and swift path
+Always act to remain firm as long as it does not degenerate!
+The Lamp of the World who intends to pass into nirvāṇa
+I make supplication for them to remain for incalculable eons! ^27-11
 
 The wealth of virtue of the path in saṃsāra and nirvāṇa,
 without exception
@@ -5150,14 +5370,18 @@ In short, victors of the three times
 Protector who unifies all of their good qualities
 You are the only impeccable, please think of us! ^27-20
 
-A hook that guides us from the lower realms of saṃsāra The great ship that liberates beings from the ocean of existence that is hard to cross
-A guide who leads beings to the liberation of great bliss A captain who leads beings in the ocean of wish- fulfilling jewels, ^27-21
+A hook that guides us from the lower realms of saṃsāra
+The great ship that liberates beings from the ocean of existence that is hard to cross
+A guide who leads beings to the liberation of great bliss
+A captain who leads beings in the ocean of wish- fulfilling jewels, ^27-21
 
 A lamp that dispels the darkness of ignorance
-The king of physicians who dispels the ailments of afflictions A protector for refuge who is always infallible
+The king of physicians who dispels the ailments of afflictions
+A protector for refuge who is always infallible
 A source of glorious wealth of benefit and happiness ^27-22
 
-Matchless biography that can be trusted and relied upon Praiseworthy by all the learned ones
+Matchless biography that can be trusted and relied upon
+Praiseworthy by all the learned ones
 The crown jewel of all siddhas
 The sublime sovereign lord of all the teachings ^27-23
 
@@ -5169,7 +5393,8 @@ Embodiment of all meditation deities is the bestowal of the two accomplishments 
 
 The embodiment of all buddhas of the ten directions and three times,
 The treasure house of eighty thousand teachings,
-The principle of bodhisattvas, the noble Hearers (śrāvakaḥ), and Solitary Realizers (pratyekabuddhaḥ),
+The principle of bodhisattvas, the noble Hearers
+(śrāvakaḥ), and Solitary Realizers (pratyekabuddhaḥ),
 The king of dharma protector who dispels all obstacles, ^27-25
 
 The compassionate one who is greater than all the embodiments,
@@ -5260,7 +5485,8 @@ Then as a final ornament, recite the aspiration prayers of the venerable, incomp
 
 The peerless lord guru and spiritual offspring,
 I am indivisible from them and fulfilling whatever they teach,
-May the confusions in my own mind be purified, and I will be able to serve as the supreme guide of living beings! ^27-44
+May the confusions in my own mind be purified, and
+I will be able to serve as the supreme guide of living beings! ^27-44
 
 The wisdom itself is the cause as well the path,
 The fruition of wisdom is Mañjuśrīgoṣa,
@@ -5292,14 +5518,18 @@ The true siddhis of meditation deities,
 And the power of the dharma protectors and guardians,
 May the practice lineage be flourished and expand! ^27-50
 
-And so on, conclude this by aspirations. At the request made by the command of Lama SangyéKundū Rinpoche regarding the requirement of a short Guruyoga practice rely upon the glorious TaklungThangpa Chenpo, I, Taklungpa, a ŚākyaBhikṣu Ngawang Tenpé Nyima Chökyi JungnéThinléNamparGyalwéde wrote this at the feet of Lama Rinpoche himself at Yangön Monastery, the supreme realm of Okmin (akaniṣṭhāḥ)
+And so on, conclude this by aspirations. At the request made by the command of Lama SangyéKundū Rinpoche regarding the requirement of a short Guruyoga practice rely upon the glorious TaklungThangpa
+Chenpo, I, Taklungpa, a ŚākyaBhikṣu Ngawang Tenpé
+Nyima Chökyi JungnéThinléNamparGyalwéde wrote this at the feet of Lama Rinpoche himself at Yangön
+Monastery, the supreme realm of Okmin (akaniṣṭhāḥ)
 of TalkungRiwoche and offered to Lama him. ^27-51
 
 ## 28. This is the Daily Practice of the Guru Yoga of the Ultimate Permanent Vajra, the Blue Akshobhya, called Clearing the Darkness of Suffering ^28-0
 
 Homage to the Guru! ^28-1
 
-This is the Guru Yoga of Venerable Kirtishri, called Clearing the Darkness of Suffering. ^28-2
+This is the Guru Yoga of Venerable Kirtishri, called
+Clearing the Darkness of Suffering. ^28-2
 
 First, going for refuge: ^28-3
 
@@ -5480,7 +5710,10 @@ Just as the Youth Excellent Wealth (Kumāra-Sudhana),
 Like the ocean of good qualities,
 May this please the sublime guru! ^28-51
 
-With this, recite dedication, aspiration, and auspicious verses, and so on, whatever is appropriate. I, Karma Maitrikara holding the name Jetrul, follower of Jetsun Kīrtiśrī, had the auspicious signs and indications to write this Guruyoga when I was on a strict retreat meditation at LhalungDrukri (Divine Valley of Dragon Mountain) in the year of Wood-Monkey, however, I did not put a great effort to write. Again, at the request made by several interested and zealous people and according to the words of Kīrtiśr, I wrote this on my festival, so I think there is a slight bit of blessing.
+With this, recite dedication, aspiration, and auspicious verses, and so on, whatever is appropriate. I, Karma
+Maitrikara holding the name Jetrul, follower of Jetsun
+Kīrtiśrī, had the auspicious signs and indications to write this Guruyoga when I was on a strict retreat meditation at LhalungDrukri (Divine Valley of Dragon
+Mountain) in the year of Wood-Monkey, however, I did not put a great effort to write. Again, at the request made by several interested and zealous people and according to the words of Kīrtiśr, I wrote this on my festival, so I think there is a slight bit of blessing.
 Sarva-Maṅgalam! Virtue! Virtue! Virtue! ^28-52
 
 ## 29. Herein is contained “The Torma Dedication, Source of All Siddhis.” ^29-0
@@ -5492,8 +5725,10 @@ They are purified, dissolved, and set ablaze, becoming the nectar of primordial 
 
 OṂĀḤ HŪṂ HA HO HRĪḤ — three times. ^29-2
 
-I myself am primordially and completely perfected as Cakrasaṃvara.
-From the seed syllable at the heart of the co-emergent Father and Mother,
+I myself am primordially and completely perfected as
+Cakrasaṃvara.
+From the seed syllable at the heart of the co-emergent
+Father and Mother,
 The root and lineage gurus, the hosts of yidam deities,
 Ḍākinīs, Dharma protectors and their retinues—the guests of the torma— ^29-3
 
@@ -5529,7 +5764,8 @@ Maṅgala Kīrti and JetsünChö Gocha,
 Rinchen Lekdrub and the one named ChöyingLhündrub, ^29-10
 
 Chökyi Gyaltsen and the venerable DrakpaKünsal,
-The root guru embodying all sources of refuge, and all the others— To the Kagyu gurus, the root of blessings,
+The root guru embodying all sources of refuge, and all the others—
+To the Kagyu gurus, the root of blessings,
 I offer this torma of samaya substance and nectar.
 Please cause a continuous rain of supreme blessings to descend. ^29-11
 
@@ -5545,7 +5781,8 @@ Please cause a continuous rain of supreme siddhis to descend. ^29-13
 
 HŪṂ! The power of the wrathful enlightened activity of all the Victorious Ones,
 Four-Armed Black Mahākāla, who subdues the unruly;
-The three Mothers of body, speech and mind, and the Four Lords of Activity;
+The three Mothers of body, speech and mind, and the
+Four Lords of Activity;
 The sixty figures headed by the six groups of eight ḍākinīs; ^29-14
 
 The twenty-one male demons and the twenty-eight powerful lords;
@@ -5553,7 +5790,8 @@ The thirty haughty spirits and the seventy-two glorious protectors;
 The hundred vetālas and the thousand Great Black Ones;
 The hundred thousand flesh-eaters and the ten million mamos; ^29-15
 
-Together with the ocean-like hosts of protectors of the teachings— To you I offer this torma of samaya substance and nectar.
+Together with the ocean-like hosts of protectors of the teachings—
+To you I offer this torma of samaya substance and nectar.
 May the precious teachings flourish throughout the ten directions.
 Completely vanquish and repel all adverse conditions,
 Obstacles, and opposing forces that hinder practitioners.
@@ -5564,7 +5802,8 @@ Glorious Devī, sovereign of the desire realm;
 Kṣetrapāla and Jinamitra;
 Trakkirāja, Dü Gön, and great Trakshé; ^29-17
 
-The ten guardians of the directions and the seventy-five Tsang protectors;
+The ten guardians of the directions and the seventy-five
+Tsang protectors;
 Together with the ocean-like retinue of oath-bound protectors—
 I offer offerings and tormas, filling the whole expanse of space.
 Cause the teachings of the sovereign masters Marpa and Mila to flourish,
@@ -5665,7 +5904,8 @@ Pacify invading armies and epidemics, and bring peace to the world. ^29-38
 Clear away the obstacles of practitioners and establish favorable conditions.
 Cause everything wished for in the mind to be accomplished in an instant. ^29-39
 
-[Then recite the section beginning with “Glorious Mikyö…” and so forth.] ^29-40
+[Then recite the section beginning with “Glorious
+Mikyö…” and so forth.] ^29-40
 
 [Ed: no English translation given in source] ^29-41
 
@@ -5676,7 +5916,8 @@ are invited. ^29-43
 
 KYAI! Great divine upāsaka endowed with fierce power,
 Commander of the māra armies, mighty Yi Chen Rabnge Tsal,
-Together with your sons, consorts, ministers, subjects and retinues— Remember your former pledge and solemn oath,
+Together with your sons, consorts, ministers, subjects and retinues—
+Remember your former pledge and solemn oath,
 And please come to this supreme and sacred place. ^29-44
 
 [Ed: no English translation given in source] ^29-45
@@ -5730,7 +5971,8 @@ And pure milk-water together with medicinal substances— ^29-66
 
 These I offer to the divine tsen protector and his retinue.
 Accept them, enjoy them, and be pleased.
-In order to deprive the enemies and obstructing forces Who hate the teachings of their power,
+In order to deprive the enemies and obstructing forces
+Who hate the teachings of their power,
 strength and magical abilities, ^29-67
 
 O mighty Tsen King, ride forth to battle!
@@ -5751,7 +5993,8 @@ The vajra command of the venerable Sangye Önpo
 Was entrusted as an unsurpassable samaya that must never be transgressed.
 You, powerful and swift upāsaka, endowed with fierce strength, ^29-70
 
-Command-protector of the teachings, divine guardian of the virtuous side,
+Command-protector of the teachings, divine guardian
+of the virtuous side,
 Yi Gyal Rinchen—to you at all times
 I make abundant offerings of every excellent substance. ^29-71
 
@@ -5761,7 +6004,8 @@ Pray To be accomplished exactly as desired, right now.
 In the Snow Land, master of the teachings of scripture and realization, ^29-72
 
 Taklungpa, holder of the chariot tradition of teaching and practice—
-The precious victory banner of his spiritual and temporal teachings Pervades the entire expanse of the sky throughout the three realms.
+The precious victory banner of his spiritual and temporal teachings
+Pervades the entire expanse of the sky throughout the three realms.
 Powerful one, accomplish all these supreme enlightened activities! ^29-73
 
 You possess great and swift miraculous power,
@@ -5797,9 +6041,13 @@ go for refuge to the Dharma, ^30-3
 
 go for refuge to the Sangha. ^30-4
 
-I bow down to the Accomplished Transcendent Conqueror, Thus-Gone, Foe-Destroyer, the Perfect Buddha, Sage of the Shakyas [Bhagavan Tathagata Arhat Samyak Sambuddha Shakyamuni]! ^30-5
+I bow down to the Accomplished Transcendent
+Conqueror, Thus-Gone, Foe-Destroyer, the Perfect
+Buddha, Sage of the Shakyas [Bhagavan Tathagata
+Arhat Samyak Sambuddha Shakyamuni]! ^30-5
 
-I bow down to Supremely Destroying by Vajra Heart [Vajrapramardi]! ^30-6
+I bow down to Supremely Destroying by Vajra Heart
+[Vajrapramardi]! ^30-6
 
 I bow down to Precious Light Rays [Ratnacisha]! ^30-7
 
@@ -5843,35 +6091,51 @@ I bow down to Unborn Son [Narayana]! ^30-26
 
 I bow down to Glorious Flower [Kusumashri]! ^30-27
 
-I bow down to Thus-gone Pure Light Rays Complete
+I bow down to Thus-gone Pure Light Rays
+Complete
 Enjoyment Total
-Omniscience [Brahmajyotirvikriditabhija Tathagata]! ^30-28
+Omniscience
+[Brahmajyotirvikriditabhija Tathagata]! ^30-28
 
-I bow down to Thus-gone Lotus Light Rays Complete
+I bow down to Thus-gone Lotus Light Rays
+Complete
 Enjoyment Total
-Omniscience [Padmajyotirvikriditabhija Tathagata]! ^30-29
+Omniscience
+[Padmajyotirvikriditabhija Tathagata]! ^30-29
 
 I bow down to Glorious Wealth [Dhanashri]! ^30-30
 
 I bow down to Glorious Mindfulness [Smritishri]! ^30-31
 
-I bow down to Extremely Famous Glorious Signs [Suparikirtitanamagheyashri]! ^30-32
+I bow down to Extremely Famous Glorious Signs
+[Suparikirtitanamagheyashri]! ^30-32
 
-I bow down to King of the Victory Banner of Indra’s Realization [Indraketudhvajaraja]! ^30-33
+I bow down to King of the Victory Banner of Indra’s
+Realization [Indraketudhvajaraja]! ^30-33
 
-I bow down to Glorious Extremely Complete Subjugation [Suvikrantashri]! ^30-34
+I bow down to Glorious Extremely Complete
+Subjugation [Suvikrantashri]! ^30-34
 
-I bow down to Extremely Completely Victorious in Battle [Vijitasamgrama]! ^30-35
+I bow down to Extremely Completely Victorious in
+Battle [Vijitasamgrama]! ^30-35
 
-I bow down to Departed by Complete Subjugation [Vikrantagamin]! ^30-36
+I bow down to Departed by Complete Subjugation
+[Vikrantagamin]! ^30-36
 
-I bow down to Glorious Array of All Appearances [Samantavabhasavyuhashri]! ^30-37
+I bow down to Glorious Array of All Appearances
+[Samantavabhasavyuhashri]! ^30-37
 
-I bow down to Precious Lotus Complete Subjugation [Ratnapadmavikramin]! ^30-38
+I bow down to Precious Lotus Complete Subjugation
+[Ratnapadmavikramin]! ^30-38
 
-I bow down to Thus-gone Foe-destroyer Perfectly Perfected Buddha Precious Lotus Supremely Abiding Powerful King of Mountains [Tathagata Arhat Samyak sambuddhaRatnapadmaSupratishthita-shailendraraja]! ^30-39
+I bow down to Thus-gone Foe-destroyer Perfectly
+Perfected Buddha Precious Lotus Supremely Abiding
+Powerful King of Mountains [Tathagata Arhat Samyak sambuddhaRatnapadmaSupratishthita-shailendraraja]! ^30-39
 
-These and others, as many Thus-gone Foe-Destroyer Perfect Buddha Accomplished Transcendent Conquerors as there are abiding in the ten direction realms of this perishable universe-all you Accomplished Transcendent Conqueror Buddhas, please think of me! ^30-40
+These and others, as many Thus-gone Foe-Destroyer
+Perfect Buddha Accomplished Transcendent
+Conquerors as there are abiding in the ten direction realms of this perishable universe-all you Accomplished
+Transcendent Conqueror Buddhas, please think of me! ^30-40
 
 During this life of mine, and through births without beginning or end, in all my births, circling in Samsara,
 I have committed evil actions, and ^30-41
@@ -5912,7 +6176,9 @@ birth as one with incomplete faculties, ^30-58
 
 [or causing one] to become a holder of perverted views, ^30-59
 
-Whatever obscurations of karma that displease the Buddhas, [in front of] the Accomplished Transcendent Conqueror Buddhas, who are Pristine Awareness, ^30-60
+Whatever obscurations of karma that displease the
+Buddhas, [in front of] the Accomplished Transcendent
+Conqueror Buddhas, who are Pristine Awareness, ^30-60
 
 who see,
 who witness, ^30-61
@@ -5928,7 +6194,8 @@ from this time forward, I promise never to commit them again. ^30-65
 
 Accomplished Transcendent Conqueror Buddhas, all of you please think of me! ^30-66
 
-During this life of mine, and through births without beginning or end, in all my other births, circling in Samsara, whatever roots of virtue I have accumulated through offering even a handful of food to one born as an animal, and ^30-67
+During this life of mine, and through births without beginning or end, in all my other births, circling in
+Samsara, whatever roots of virtue I have accumulated through offering even a handful of food to one born as an animal, and ^30-67
 
 whatever roots of virtue I have accumulated through guarding ethical discipline, and ^30-68
 
@@ -5938,17 +6205,22 @@ whatever roots of virtue I have accumulated through completely ripening sentient
 
 whatever roots of virtue I have accumulated through giving rise to the Mind of Supreme Enlightenment, and ^30-71
 
-whatever virtuous roots of unsurpassable Pristine Awareness there may be, gathering all of these together into one, [by dedicating it] to what is unsurpassable, and ^30-72
+whatever virtuous roots of unsurpassable Pristine
+Awareness there may be, gathering all of these together into one, [by dedicating it] to what is unsurpassable, and ^30-72
 
 to what is highest, and to what is higher than highest, ^30-73
 
-to what is unsurpassably unsurpassable, I completely dedicate it to unsurpassable, perfectly perfected Enlightenment! ^30-74
+to what is unsurpassably unsurpassable, I completely dedicate it to unsurpassable, perfectly perfected
+Enlightenment! ^30-74
 
-Just as the Accomplished Transcendent Conqueror Buddhas of the past completely dedicated, and ^30-75
+Just as the Accomplished Transcendent Conqueror
+Buddhas of the past completely dedicated, and ^30-75
 
-just as the Accomplished Transcendent Conqueror Buddhas who have not yet come will completely dedicate, and ^30-76
+just as the Accomplished Transcendent Conqueror
+Buddhas who have not yet come will completely dedicate, and ^30-76
 
-Just as the Accomplished Transcendent Conqueror Buddhas who have now arisen are now completely dedicating, just in that way, I also completely dedicate this merit! ^30-77
+Just as the Accomplished Transcendent Conqueror
+Buddhas who have now arisen are now completely dedicating, just in that way, I also completely dedicate this merit! ^30-77
 
 I individually confess all evil actions! ^30-78
 
@@ -5956,7 +6228,8 @@ I rejoice in all merits! ^30-79
 
 Exhorting all the Buddhas, I supplicate them! ^30-80
 
-May unsurpassable, supreme, sacred Original Awareness suddenly arise in me! ^30-81
+May unsurpassable, supreme, sacred Original
+Awareness suddenly arise in me! ^30-81
 
 Whatever Victorious Ones, supreme among humans,
 who are now abiding, and ^30-82
@@ -6006,11 +6279,14 @@ all the Victorious Ones actually appear before my mind.
 Bowing down with as many bodies as there are atoms in the universe,
 I pay supreme homage to all the Victorious Ones. ^31-5
 
-In every atom, there are as many Buddhas as there are atoms abiding with all their Bodhisattva sons.
-In that way, the entire Dharmadhatu, without exception I imagine it is completely filled with Victorious Ones. ^31-6
+In every atom, there are as many Buddhas as there are atoms
+abiding with all their Bodhisattva sons.
+In that way, the entire Dharmadhatu, without exception
+I imagine it is completely filled with Victorious Ones. ^31-6
 
 Honoring them with an endless ocean of praise
-With all the sounds of an ocean of various melodies reciting all the Victorious Ones’ enlightened qualities,
+With all the sounds of an ocean of various melodies
+reciting all the Victorious Ones’ enlightened qualities,
 I praise all the Sugatas [those who have gone to perfect bliss]. ^31-7
 
 With beautiful flowers and beautiful garlands,
@@ -6055,13 +6331,16 @@ I dedicate all of it to Enlightenment! ^31-15
 
 Let offerings be made to buddhas of the past,
 And all who now dwell throughout the ten directions of this universe!
-Let all who are yet to come swiftly fulfill their wishes And attain the stages of enlightenment and Buddhahood! ^31-16
+Let all who are yet to come swiftly fulfill their wishes
+And attain the stages of enlightenment and Buddhahood! ^31-16
 
-Let as many worlds as there are in all the ten directions Transform into realms that are vast and utterly pure,
+Let as many worlds as there are in all the ten directions
+Transform into realms that are vast and utterly pure,
 Filled with Buddhas who have sat before the mighty bodhi tree,
 Around them all their bodhisattva sons and daughters! ^31-17
 
-Let as many sentient beings as there are in all the ten directions Live always and forever in happiness and health!
+Let as many sentient beings as there are in all the ten directions
+Live always and forever in happiness and health!
 Let all beings meet the Dharma
 That befits them best! And so may all they hope for be fulfilled! ^31-18
 
@@ -6082,14 +6361,16 @@ I shall proclaim the Dharma in the language of all! ^31-21
 
 Taming my mind, and striving in the paramitas,
 I will never forget the bodhicitta;
-May all my harmful actions and the obscurations they cause Be completely purified, every single one! ^31-22
+May all my harmful actions and the obscurations they cause
+Be completely purified, every single one! ^31-22
 
 May I be freed from karma, harmful emotions, and the work of negativity,
 And act for all beings in the world,
 Just like the lotus flower to which mud and water cannot cling,
 Or sun and moon that course unhindered through the sky. ^31-23
 
-Throughout the reach and range of the entire universe I shall pacify completely the suffering of all the lower realms,
+Throughout the reach and range of the entire universe
+I shall pacify completely the suffering of all the lower realms,
 I shall lead all beings to happiness,
 And work for the ultimate benefit of each and every one! ^31-24
 
@@ -6129,7 +6410,8 @@ Encircled by all their Bodhisattva heirs.
 Along with them, may I perform the actions of enlightenment! ^31-31
 
 And so, in each direction, everywhere,
-Even on the tip of a hair, may I see an ocean of Buddhas— All to come in past, present and future—in an ocean of pure realms,
+Even on the tip of a hair, may I see an ocean of Buddhas—
+All to come in past, present and future—in an ocean of pure realms,
 And throughout an ocean of eons, ^31-32
 
 Each single word of a Buddha’s speech, That voice with its ocean of qualities,
@@ -6185,15 +6467,18 @@ And fully realizing an ocean of primordial wisdom
 And completely purifying an ocean of enlightened conduct,
 And completely fulfilling an ocean of aspirations. ^31-42
 
-And making excellent offerings to the ocean of buddhas And perform these, without ever growing weary,
+And making excellent offerings to the ocean of buddhas
+And perform these, without ever growing weary,
 through oceans of eons!
 Whatever [aspirations] belong to the victorious buddhas of the three times
 The individual aspiration prayers concerning the conduct of enlightenment.
-Having awakened to enlightenment through excellent conduct May I accomplish all of them completely, without exception. ^31-43
+Having awakened to enlightenment through excellent conduct
+May I accomplish all of them completely, without exception. ^31-43
 
 The foremost among the spiritual heirs of all the victorious buddhas
 Whose name is called ‘All-Good.
-So that I may follow the conduct of those wise beings I fully dedicate all the merit arising from these virtuous deeds ^31-44
+So that I may follow the conduct of those wise beings
+I fully dedicate all the merit arising from these virtuous deeds ^31-44
 
 To purify my body, my speech and my mind as well,
 To purify my actions, and all realms,
@@ -6225,7 +6510,8 @@ Who is inspired towards supreme awakening,
 And gives rise to faith even once,
 that it is more supreme and meritorious. ^31-50
 
-Whoever makes this Aspiration Prayer for Excellent Conduct Will be free from the lower realms,
+Whoever makes this Aspiration Prayer for Excellent Conduct
+Will be free from the lower realms,
 And free from negative friends;
 They will see Amithaba soon, ^31-51
 
@@ -6261,7 +6547,8 @@ I fully dedicate all the merit arising from these virtuous deeds ^31-57
 
 By all the victorious buddhas of the three times—past,
 present, and future—
-Through that dedication which they praised as supreme I too completely dedicate all these roots of virtue
+Through that dedication which they praised as supreme
+I too completely dedicate all these roots of virtue
 So that I may accomplish the Noble Conduct. ^31-58
 
 When the time of my death arrives,
@@ -6269,18 +6556,21 @@ May all that obscures me be completely cleared away.
 May I behold Amitābha directly
 And journey at once to the realm of Sukhāvatī. ^31-59
 
-Having reached that realm, may all these aspirations Be fulfilled completely, without a single exception.
+Having reached that realm, may all these aspirations
+Be fulfilled completely, without a single exception.
 May I bring every one of them to perfect fulfilment
 And benefit beings for as long as the world remains. ^31-60
 
-There, in the delightful and excellent assembly of the Victorious One,
+There, in the delightful and excellent assembly of the
+Victorious One,
 May I be born from an exquisitely beautiful and sacred lotus.
 In the direct presence of the victorious Amitābha,
 May I receive a prophecy of my enlightenment. ^31-61
 
 Having received that prophecy there,
 Through hundreds of billions of emanations,
-May I, by the power of wisdom, bring abundant benefit To sentient beings throughout the ten directions. ^31-62
+May I, by the power of wisdom, bring abundant benefit
+To sentient beings throughout the ten directions. ^31-62
 
 Through whatever slight virtue I have accumulated
 By reciting this Aspiration to Noble Conduct,
@@ -6288,15 +6578,19 @@ May all the virtuous aspirations of living beings
 Be fulfilled entirely in a single instant. ^31-63
 
 Through dedicating this Noble Conduct,
-May the boundless and sublime merit thereby attained Enable all beings drowning in the river of suffering
+May the boundless and sublime merit thereby attained
+Enable all beings drowning in the river of suffering
 To reach the supreme abode of Amitābha. ^31-64
 
 May this king of aspirations, supreme among the excellent,
 Bring benefit to all infinite living beings.
-May the purpose of this scripture, adorned by Samantabhadra, be fulfilled,
+May the purpose of this scripture, adorned by
+Samantabhadra, be fulfilled,
 And may every realm of suffering be completely emptied. ^31-65
 
-The King of Aspirations for Noble Virtuous Conduct is complete. This was translated by the Indian scholars Jinamitra and Surendrabodhi, and the translator Bende Yeshe De and others, and compiled by the great translator Vairocana. ^31-66
+The King of Aspirations for Noble Virtuous Conduct is complete. This was translated by the Indian scholars
+Jinamitra and Surendrabodhi, and the translator
+Bende Yeshe De and others, and compiled by the great translator Vairocana. ^31-66
 
 ## 32. The Aspiration of Maitreya spoken by Maitreya, from the forty-first chapter of the Ratnakuta Sutra ^32-0
 
@@ -6419,12 +6713,14 @@ may I, the one known as Maitreya,
 bring the six perfections to completion,
 and may I abide on the ten Bhumis. ^32-24
 
-This was translated by the Indian scholars Jinamitra and Surendrabodhi, and the great translator Bende Yeshe De, who brought it to a definitive conclusion. ^32-25
+This was translated by the Indian scholars Jinamitra and Surendrabodhi, and the great translator Bende
+Yeshe De, who brought it to a definitive conclusion. ^32-25
 
 Through the power of the immeasurable merit created by doing this,
 May I be free from birth among hell beings, hungry ghosts, animals, and asuras,
 And, having forever abandoned all such unfortunate forms of existence,
-May I be born in the presence of the Victorious Maitreya. ^32-26
+May I be born in the presence of the Victorious
+Maitreya. ^32-26
 
 When the Victorious Maitreya and Siṃha,
 In the future, display the deeds of attaining Buddhahood,
@@ -6449,7 +6745,8 @@ I pay homage to that inconceivable Victorious One together with his Bodhisattva 
 Its precious ground is level, even, and without boundaries.
 There are no oceans, mountains, valleys, or divisions into separate lands.
 It is clear and radiant, peaceful, blissful, and delightful.
-May I be born in that completely pure realm of the Victorious One. ^33-3
+May I be born in that completely pure realm of the
+Victorious One. ^33-3
 
 It is adorned with trees made of many kinds of precious substances.
 Streams of fragrant water flow there, filled with precious lotuses.
@@ -6489,7 +6786,8 @@ Whatever is needed or wished for appears merely by thinking of it.
 Everyone practices the profound Dharma of the supreme vehicle.
 May I be born in that realm where the Mahāyāna is completely perfected. ^33-10
 
-Through miraculous powers, one travels to limitless Buddha-fields.
+Through miraculous powers, one travels to limitless
+Buddha-fields.
 Oceans of offering clouds arise from the palms of one’s hands.
 One makes offerings to all the Victorious Ones and brings all beings to maturation and liberation.
 May I be born in that supreme realm of miraculous manifestation. ^33-11
@@ -6507,7 +6805,8 @@ May I behold such a supreme lotus throne. ^33-13
 Upon it is the Victorious Protector Amitābha.
 To his right is the Bodhisattva Avalokiteśvara.
 To his left is the Bodhisattva Mahāsthāmaprāpta.
-May I behold them surrounded by countless Bodhisattvas. ^33-14
+May I behold them surrounded by countless
+Bodhisattvas. ^33-14
 
 His light is immeasurable, and his splendor is immeasurable.
 His lifespan is immeasurable, and his Saṅgha is immeasurable.
@@ -6520,14 +6819,16 @@ The recollection of previous lives and supreme,
 discerning intelligence,
 And may I also attain supreme miraculous powers. ^33-16
 
-May I behold the Victorious One, Protector of the World, who is my protector,
+May I behold the Victorious One, Protector of the
+World, who is my protector,
 That supreme and perfectly awakened Buddha; and having seen him,
 May I respectfully receive the profound and vast Dharma,
 And in that very instant may I completely perfect the ten Bodhisattva bhūmis. ^33-17
 
 Having received a prophecy from the Sugata Amitābha,
 May I make offerings to many millions of Buddhas.
-Through miraculous powers, may I travel to many Buddha-fields,
+Through miraculous powers, may I travel to many
+Buddha-fields,
 Make offerings to all the Victorious Ones, and bring all beings to maturation and liberation. ^33-18
 
 The happiness and bliss of the outer world, the environment, are inconceivable.
@@ -6535,7 +6836,8 @@ The abundance of happiness enjoyed by the sentient beings within it is inconceiv
 The abundance of happiness enjoyed by the sentient beings within it is inconceivable.
 May I be born in that inconceivable supreme realm. ^33-19
 
-At the time of my death, may I see the Victorious Amitābha Together with his retinue, and be filled with great joy.
+At the time of my death, may I see the Victorious Amitābha
+Together with his retinue, and be filled with great joy.
 May I die while maintaining mindfulness, without forgetting meditative concentration,
 And be miraculously born in Sukhāvatī, the Land of Bliss. ^33-20
 
@@ -6566,7 +6868,8 @@ Please lead me to that realm of the light of primordial wisdom. ^33-24
 Please lead me to that realm of the light of compassion.
 Please lead me to that realm of the light of enlightened activity.
 Please lead me to that realm of the light of aspiration.
-May I be born in that completely pure realm of the Victorious One. ^33-25
+May I be born in that completely pure realm of the
+Victorious One. ^33-25
 
 In the Buddha-field renowned as the Realm of Great Bliss,
 In the presence of the Blessed Protector Amitābha,
@@ -6599,7 +6902,8 @@ May I never be born in any of the three lower realms,
 But may I be born in a fortunate state with a human body. ^33-31
 
 Even when I am born in a fortunate state with a human body,
-May I not be born as an evil-doing king, nor as his minister May I not be born as a military commander or as one who passes harsh judgments and punishments.
+May I not be born as an evil-doing king, nor as his minister
+May I not be born as a military commander or as one who passes harsh judgments and punishments.
 May I not be born as one who pursues profit through harmful trades, an oil-seed crusher, an alcohol seller, or a thief,
 Nor may I be born as a servant or in an unfavorable female existence. ^33-32
 
@@ -6624,7 +6928,8 @@ May I enter the monastic life while young and possess pure ethical discipline.
 Throughout my life, may I be free from sickness and obstacles,
 And from the very beginning of life, may I encounter the Dharma. ^33-36
 
-Having encountered the Dharma immediately after birth Through hearing, reflection, and meditation, may I thoroughly train and refine my mind.
+Having encountered the Dharma immediately after birth
+Through hearing, reflection, and meditation, may I thoroughly train and refine my mind.
 May the six consciousnesses not become distracted by their objects.
 Having gained mastery over my mind through one- pointed meditative concentration,
 For every single sentient being throughout the three realms, without exception,
@@ -6691,10 +6996,12 @@ By the force of immense joy, may they be freed from sin and depart together in h
 
 When the hell beings see rain consisting of blossoms mixed with scented water
 falling to cool and extinguish the burning embers of hell they will wonder with sudden bliss what has caused this.
-May those hell beings look up and behold the Bodhisattva Padmapāṇi (Avalokiteśvara). ^34-12
+May those hell beings look up and behold the
+Bodhisattva Padmapāṇi (Avalokiteśvara). ^34-12
 
 “Friends, don’t be afraid but quickly gather here,
-What is there to flee when above us is the youthful Manjughosha to dispel our fears.
+What is there to flee when above us is the youthful
+Manjughosha to dispel our fears.
 Tender Bodhisattava who protects all living things,
 he whose power has freed us from all suffering,
 generated intense joy, and given birth to compassion and the Bodhisattva mind that completely protects all living beings? ^34-13
@@ -6705,9 +7012,11 @@ accompanied by thousands of enchanting goddesses chanting songs of praise from d
 Upon seeing Mañjughoṣa in such a form, may the hell beings let out cries of joy. ^34-14
 
 Through these roots of virtue of mine,
-may all beings in the hells rejoice upon seeing Samantabhadra and the other unhindered
+may all beings in the hells rejoice upon seeing
+Samantabhadra and the other unhindered
 Bodhisattvas descending like clouds, bringing down cool, fragrant, and pleasing rains of bliss.
-may all beings in the hells rejoice upon seeing Samantabhadra and the other unhindered ^34-15
+may all beings in the hells rejoice upon seeing
+Samantabhadra and the other unhindered ^34-15
 
 May animals be freed from
 the terror of preying upon one another.
@@ -6863,7 +7172,8 @@ May they receive alms
 May their minds be completely pure,
 And may they be renowned in all directions. ^34-45
 
-May beings not experience the misery of lower realms And may they never know any hardships;
+May beings not experience the misery of lower realms
+And may they never know any hardships;
 With a physical form superior to the gods,
 May they swiftly attain Buddhahood. ^34-46
 
@@ -6909,7 +7219,8 @@ Ripen upon myself,
 And through the might of the Bodhisattva Sangha,
 May all beings experience happiness. ^34-54
 
-May the teachings, which are the sole medicine for suffering And the origin of every joy,
+May the teachings, which are the sole medicine for suffering
+And the origin of every joy,
 Be materially supported and honored
 And abide for a long time. ^34-55
 
@@ -6920,9 +7231,11 @@ Through whose kindness I develop. ^34-56
 
 ## 35. Aspiration of Pure Realm Free from Dust (Abhirati) ^35-0
 
-The Outer Auspicious Aspiration for the Stainless Pure Realm OṃSvasti! In the outer world, in the eastern direction,
+The Outer Auspicious Aspiration for the Stainless Pure Realm
+OṃSvasti! In the outer world, in the eastern direction,
 is the Stainless Pure Realm.
-There, the Victorious Protector Akshobhyateaches the Dharma to a wondrous assembly of noble beings.
+There, the Victorious Protector Akshobhyateaches the
+Dharma to a wondrous assembly of noble beings.
 To Taklung Thangpa, his nirmanakaya emanation, I pay homage. ^35-1
 
 Within, upon the stainless ground of the Dharma wheel,
@@ -6938,7 +7251,8 @@ I pay homage to TaklungThangpa as the dharmakāya. ^35-3
 Inseparably embodying the Three Bodies, the Master of all Buddha Families,
 the Lord of Union (E-Vam) and Master of Vows—
 and the embodiment of the compassion of all spiritual guides.
-setup as a field of merit to purify all offerings. The Seven-Branch Practice ^35-4
+setup as a field of merit to purify all offerings. The
+Seven-Branch Practice ^35-4
 
 Knowing your virtues, I pay homage with devoted faith,
 touching the five points of my body—
@@ -6946,7 +7260,8 @@ numbered as the atoms of boundless oceans—to the earth.
 I offer my body, possessions, ^35-5
 
 and all virtues throughout the three times,
-transformed into clouds of offerings like those of the Bodhisattva Samantabhadra.
+transformed into clouds of offerings like those of the
+Bodhisattva Samantabhadra.
 The offerings, the one who offers, and the recipient of the offerings cannot be found as inherently existing.
 With these pure offerings, free from fixation on the three spheres, I fill every pure realm. ^35-6
 
@@ -6956,7 +7271,8 @@ I confess all the harmful actions produced by the five poisons and committed thr
 speech, and mind—those I have personally committed,
 caused others to commit, or rejoiced in when committed by others. ^35-7
 
-Please purify all these wrong actions, together with every related fault and downfall.
+Please purify all these wrong actions, together with
+every related fault and downfall.
 With complete joy, I rejoice in all virtue:
 the virtue constantly present in the minds of beings, ^35-8
 
@@ -6971,11 +7287,13 @@ I pray that you remain and do not pass completely into nirvāṇa. ^35-10
 
 As represented by this accomplishment that brings the two accumulations into union,
 Whatever accumulation of virtue has been gathered throughout the three times—
-In accordance with the enlightened aspiration of all the Victorious Ones and their Bodhisattva heirs,
+In accordance with the enlightened aspiration of all the
+Victorious Ones and their Bodhisattva heirs,
 I dedicate every accumulation of virtue gathered throughout the three times—represented here by the united accumulation of merit and wisdom— ^35-11
 
 I dedicate it so that this excellent aspiration of mine may be fulfilled.
-the excellent and ancient tradition of the supreme TaklungKagyü lineage—
+the excellent and ancient tradition of the supreme
+TaklungKagyü lineage—
 and its great Dharma teaching surrounded by the Four Jewels spread throughout the entire earth encircled by the oceans. ^35-12
 
 May the lives of the supreme learned and accomplished masters
@@ -7010,7 +7328,8 @@ may the wish-fulfilling jewels of the two kinds of bodhicitta- fill the deep and
 
 Through the power of this aspiration, reaching to the limits of space,
 may we manifest whatever emanated forms are necessary beside each and every sentient being.
-May we remove all the different forms of suffering that appear- And strive to establish beings in lasting benefit and happiness. ^35-19
+May we remove all the different forms of suffering that appear-
+And strive to establish beings in lasting benefit and happiness. ^35-19
 
 Through the three higher trainings, the thirty-seven factors conducive to awakening,
 and all the other vast practices of bodhisattvas and noble beings,
@@ -7086,15 +7405,19 @@ May the precious enlightened intention be brought fully to completion. ^35-33
 
 O Dharma Lord, source of an ocean of auspiciousness,
 Through the power of extensively proclaiming your auspicious, wondrous, and excellent deeds,
-may the supreme teaching of the auspicious TaklungKagyü lineage-
+may the supreme teaching of the auspicious
+TaklungKagyü lineage-
 spread throughout the entire vast earth, filling it with auspiciousness. ^35-34
 
-Thus, this prayer of aspiration for the Stainless Pure Realm in the eastern direction, entitled “A Melody Aspiring to the Vajra-Like, Imperturbable State,” was composed by Taklungpa Ngawang Namgyal at the great monastic seat. It is a Dharma teaching intended to be offered to all fortunate beings to be guided in the regions of Dokham and Central Tibet. ^35-35
+Thus, this prayer of aspiration for the Stainless Pure
+Realm in the eastern direction, entitled “A Melody
+Aspiring to the Vajra-Like, Imperturbable State,” was composed by Taklungpa Ngawang Namgyal at the great monastic seat. It is a Dharma teaching intended to be offered to all fortunate beings to be guided in the regions of Dokham and Central Tibet. ^35-35
 
 ## 36. Aspirations of Akshobhya ^36-0
 
 The essence of all Victorious Ones, Taklungpa,
-known as Tashi Pal—whose mere connection leads to rebirth- In the Dustless Realm in the body of the Protector Akshobhya.
+known as Tashi Pal—whose mere connection leads to rebirth-
+In the Dustless Realm in the body of the Protector Akshobhya.
 I bow my head at the feet of that teacher. ^36-1
 
 With the vajra-like samādhi that is completely unshakable,
@@ -7107,12 +7430,14 @@ I rejoice in every virtue and request the Buddhas to turn the wheel of Dharma.
 I ask them not to pass into nirvāṇa but to remain with us.
 Through the virtue of these practices, may every living being attain great awakening. ^36-3
 
-The ocean of suffering is filled with the sea monsters of the afflictions- And violently disturbed by the waves of karma.
+The ocean of suffering is filled with the sea monsters of the afflictions-
+And violently disturbed by the waves of karma.
 May all beings who are sinking in that ocean-
 quickly reach the dry land of nirvāṇa. ^36-4
 
 Until they attain nirvāṇa, throughout all their successive lives,
-may they always be born in pure realms where the Three Jewels are present,
+may they always be born in pure realms where the
+Three Jewels are present,
 may they always be born in pure realms
 and may they never develop wrong views. ^36-5
 
@@ -7149,14 +7474,16 @@ entire mandala of the surrounding assembly. ^36-11
 From them, may oceans of offering clouds arise
 and completely fill the whole expanse of that pure realm.
 For as long as samsara remains,
-may these uninterrupted offerings delight the Blessed One and all his attendants. ^36-12
+may these uninterrupted offerings delight the Blessed
+One and all his attendants. ^36-12
 
 In the centre of the assembly of deities,
 Please satisfy us with abundant teachings
 that establish with certainty the meaning of emptiness.
 May King Akshobhya praise and encourage us with many special words. ^36-13
 
-May we never be separated from the bodhisattvas Gandhahastin, Vajradhvaja,
+May we never be separated from the bodhisattvas
+Gandhahastin, Vajradhvaja,
 Avalokiteśvara, Mahāsthāmaprāpta,
 and all the other heirs of the Victorious Ones.
 May we practise and become fully engaged in their ways of liberation. ^36-14
@@ -7181,7 +7508,9 @@ there are also his sacred Dharma and the noble Sangha.
 Through the power of the unfailing truth of these Three Jewels,
 May every object of this pure aspiration be completely accomplished. ^36-18
 
-This was requested and edited by the monk Ngawang Namgyal from the vajra speech of the glorious holy Guru. ^36-19
+This was requested and edited by the monk Ngawang
+Namgyal from the vajra speech of the glorious holy
+Guru. ^36-19
 
 ## 37. The Aspiration Prayer of Cakrasaṃvara ^37-0
 
@@ -7197,7 +7526,8 @@ I pray at the feet of the great scholar Naropa. ^37-2
 
 To Phamthingpa and the Nepalese Bhadanta;
 the younger translator of great renown, Sherab Palzangpo;
-Marton Chokyi Gyaltsen; the guide of beings, Phagmo Drupa; and to the glorious TaklungThangpa, I pray.
+Marton Chokyi Gyaltsen; the guide of beings, Phagmo
+Drupa; and to the glorious TaklungThangpa, I pray.
 and to the glorious TaklungThangpa,at their feet I pray. ^37-3
 
 From Ratnanatha and Prajnaguru,
@@ -7231,7 +7561,8 @@ Nevertheless, I respectfully offer both pure and impure objects of experience an
 Which surely determines happiness over suffering
 In the cause and effect of both pure and impure realms of experience— I pay respectful homage. ^37-9
 
-Merging the ultimate wisdom mandala (the signified)- Into the conceptual three-dimensional symbol mandala,
+Merging the ultimate wisdom mandala (the signified)-
+Into the conceptual three-dimensional symbol mandala,
 I bow to the mirror of Vajrasattva,
 the realm where self-aware awareness displays as the mandala of the Victorious Ones. ^37-10
 
@@ -7260,11 +7591,13 @@ I pay homage ^37-14
 
 In the center of the Commitment Wheel, upon eight spokes,
 are the stacked wheels of Body, Speech, and Mind.
-Above the thirty-two pillars of the eight-petaled Great Bliss Wheel,
+Above the thirty-two pillars of the eight-petaled Great
+Bliss Wheel,
 I bow to the celestial mansion adorned with vajra jewels. ^37-15
 
 In the inner center of the palace, upon a lotus, sun disk,
-And the figures of Bhairava and Kalaratri, appears the Venerable Guru as Heruka,
+And the figures of Bhairava and Kalaratri, appears the
+Venerable Guru as Heruka,
 azure in color like the stainless sky of Dharmadhatu.
 To your four-faced mandala, I pay homage. ^37-16
 
@@ -7368,7 +7701,8 @@ without purpose or meaningful content, causing distraction,
 We acknowledge and confess.
 Bless us to purify the sin of idle gossip! ^37-36
 
-Whatever covetous thoughts we have harbored wishing to possess the desirable property of others,
+Whatever covetous thoughts we have harbored wishing to possess
+the desirable property of others,
 Whether good or bad, large or small, we acknowledge and confess.
 Bless us to purify the sin of covetousness! ^37-37
 
@@ -7377,7 +7711,8 @@ wishing to inflict harm, beat, or kill those we dislike,
 We acknowledge and confess.
 Bless us to purify the sin of malice! ^37-38
 
-Whatever wrong views we have held denying the Three Jewels, karma, and its effects,
+Whatever wrong views we have held denying the Three
+Jewels, karma, and its effects,
 or holding them to be untrue,
 We acknowledge and confess.
 Bless us to purify the sin of wrong views! ^37-39
@@ -7415,7 +7750,8 @@ Dharma gates in manifold ways! ^37-45
 
 As long as space does not transform into physical form,
 may the wisdom deities remain stable in this support,
-and as long as beings rely on this mandala of the Victorious One,
+and as long as beings rely on this mandala of the
+Victorious One,
 may all who see, hear, remember, or touch it find meaningful benefit! ^37-46
 
 By dedicating all the supreme fruits of virtue
@@ -7428,7 +7764,9 @@ speech, and mind across the three times by-
 our assembly of practitioners gathered here
 for the benefit of all mother sentient beings. ^37-48
 
-By the unceasing, playful dance like a moon in water— The magical emanations arising as the Enjoyment Body (Sambhogakaya),
+By the unceasing, playful dance like a moon in water—
+The magical emanations arising as the Enjoyment
+Body (Sambhogakaya),
 The natural radiance of emptiness manifests as the deities of the five-family mandala—
 May we realize the immutable ultimate nature itself! ^37-49
 
@@ -7441,7 +7779,9 @@ In the Taklung tradition, where the two rivers of Kadam and Mahamudra mingle,
 May the precious teachings flourish and continuously spread!
 May the lives of the Dharma holders be secure, may the monastic community thrive, ^37-51
 
-And may there be auspiciousness for all to practice the Dharma as vast as space!Composed by Ngawang Trinley Tenzin Namgyal Palzangpo at the Chakrasamvara Palace of Taklung Ling upon the fine completion of the three-dimensional mandala model with its golden pinnacle, written as a prayer of supplication and aspiration. ^37-52
+And may there be auspiciousness for all to practice the Dharma as vast as space!Composed by
+Ngawang Trinley Tenzin Namgyal Palzangpo at the
+Chakrasamvara Palace of Taklung Ling upon the fine completion of the three-dimensional mandala model with its golden pinnacle, written as a prayer of supplication and aspiration. ^37-52
 
 ## 38. The Lamrim Aspiration Prayer ^38-0
 
@@ -7456,7 +7796,8 @@ Completely transcend the miserable states in which there is no opportunity to pr
 And obtain the precious human body endowed with the freedoms and favorable conditions. ^38-2
 
 May I meet a spiritual teacher rich in the treasures of learning and reflection,
-Having been taught, and while listening to the sacred Dharma spoken by him
+Having been taught, and while listening to the sacred
+Dharma spoken by him
 And may I not become like an upturned or contaminated vessel,
 But with faith and devotion, may I reflect upon and meditate on the teachings. ^38-3
 
@@ -7470,7 +7811,8 @@ Practice the discipline of gathering all virtuous qualities,
 And excellently accomplish the welfare of all sentient beings;
 May I abide in the ethical discipline of the Mahāyāna. ^38-5
 
-Aspirational bodhicitta is the wish to attain perfect Buddhahood.
+Aspirational bodhicitta is the wish to attain perfect
+Buddhahood.
 Engaging bodhicitta is the path of actually accomplishing that very goal.
 It consists in training in the six pāramitās,
 May I abide in the supreme vows of the bodhisattvas. ^38-6
@@ -7478,7 +7820,8 @@ May I abide in the supreme vows of the bodhisattvas. ^38-6
 May the entire maṇḍala of deities of the generation stage appear vividly and clearly,
 And may the samādhi of the completion stage be completely pure.
 Without ever departing from the vast array of samaya commitments,
-May I bring the supreme path of the profound Secret Mantra to perfection. ^38-7
+May I bring the supreme path of the profound Secret
+Mantra to perfection. ^38-7
 
 Unstained by the defilement of conceptual thought that grasps at characteristics,
 May I realize completely pure mind-itself—the luminous Mahāmudrā.
@@ -7496,7 +7839,8 @@ May I bring to perfection the attainments of the five paths and ten bhūmis,
 And, possessing the nature of the four kāyas and the five primordial wisdoms,
 May I swiftly attain the state of Vajradhara. ^38-10
 
-At the request of the fully ordained monk Kunga Chökyab, this was composed by the Śākya monk. ^38-11
+At the request of the fully ordained monk Kunga
+Chökyab, this was composed by the Śākya monk. ^38-11
 
 Homage to the Precious Guru! ^38-12
 
@@ -7633,7 +7977,8 @@ May I never be separated from the Precious Lord. ^38-39
 In particular, in this northern region, Avalokiteśvara,
 Appearing in the manner of one who observes pure conduct,
 is the supreme holder of the Victorious One’s teachings.
-May the practice lineage of the great and glorious TaklungThangpa,
+May the practice lineage of the great and glorious
+TaklungThangpa,
 Like the sun illuminating the day, spread throughout the entire world. ^38-40
 
 May the community greatly increase, remain harmonious and inseparable, and always be joyful.
@@ -7728,14 +8073,19 @@ May they remain unstained by the defilements of the three realms of existence.
 May they be miraculously born from a lotus,
 And take birth in Sukhāvatī, the Pure Land of Bliss. ^39-3-2
 
-Just as a drop of water falling into the great ocean Will never be exhausted until the ocean itself dries up,
-Likewise, whatever virtue is dedicated to enlightenment Will never be exhausted until enlightenment is attained.
+Just as a drop of water falling into the great ocean
+Will never be exhausted until the ocean itself dries up,
+Likewise, whatever virtue is dedicated to enlightenment
+Will never be exhausted until enlightenment is attained.
 And the venerable Jetsun Milarepa said:The great meditator who practices in a mountain cave, And the benefactor who provides him with the necessities of life— There is an auspicious dependent connection for both to attain Buddhahood together. The essence of this dependent connection is the dedication of merit. ^39-3-3
 
-Through the virtue of the past, future, and present— All the virtue accumulated throughout these three times— May our parents and all beings of the six realms
+Through the virtue of the past, future, and present—
+All the virtue accumulated throughout these three times—
+May our parents and all beings of the six realms
 Swiftly attain Buddhahood. ^39-3-4
 
-Spoken by Thangpa Rinpoche Tashi Pal. Sarva Maṅgalam— May all be auspicious! ^39-3-5
+Spoken by Thangpa Rinpoche Tashi Pal. Sarva
+Maṅgalam— May all be auspicious! ^39-3-5
 
 ## 40. In the language of India: Arjamanjushrinamasamgiti ^40-0
 
@@ -7783,7 +8133,8 @@ and drowning in the bog of ignorance,
 In order to benefit all sentient beings,
 and obtain the highest result, ^40-10
 
-May the Perfect Buddha, the Accomplished Transcendent Conqueror,
+May the Perfect Buddha, the Accomplished
+Transcendent Conqueror,
 the guru and guide of all beings,
 who understands Thatness with great commitment,
 who knows the faculties and aspirations of all beings,
@@ -7841,7 +8192,8 @@ the Lord of Secrets: ^40-21
 
 “Since you are endowed with Great Compassion,
 for the benefit of all beings,
-this vastly beneficial Recitation of the Names of Manjushri’s Body of Original Awareness, ^40-22
+this vastly beneficial Recitation of the Names of
+Manjushri’s Body of Original Awareness, ^40-22
 
 that purifies and eliminates defilements,
 listen carefully to my teaching!
@@ -8578,7 +8930,8 @@ Excellent, excellent, what you have perfectly taught,
 seeking the result of complete liberation,
 for all beings without protectors, ^40-175
 
-You accomplish the vast benefit of we all attaining perfect complete enlightenment!
+You accomplish the vast benefit of we all attaining
+perfect complete enlightenment!
 Just this, taught in the “Illusory Net,”
 is the completely pure excellent path! ^40-176
 
@@ -8587,11 +8940,13 @@ meaningfully accomplishing the benefit of beings,
 just this is the object of all buddhas.
 Just this is taught by all perfect buddhas. ^40-177
 
-This completes the Bhagavan Glorious Jnanasattva’s perfect recitation of the ultimate names, spoken by the Bhagavan Tathagata Shakyamuni. ^40-178
+This completes the Bhagavan Glorious Jnanasattva’s perfect recitation of the ultimate names, spoken by the
+Bhagavan Tathagata Shakyamuni. ^40-178
 
 ## 41. The Heart of Wisdom ^41-0
 
-Indescribable, inconceivable, inexpressible Transcendent Wisdom unborn and unceasing, the very nature of space,
+Indescribable, inconceivable, inexpressible Transcendent Wisdom
+unborn and unceasing, the very nature of space,
 the realm of your own self-knowing original awareness;
 I pay homage to the mother of the Buddhas of the three times! ^41-1
 
@@ -8968,7 +9323,8 @@ Praise with Indian classical texts, the praises composed by Sangye Onpo, or in s
 
 Through the mandala of the Great Wide Vajra,
 You protect living beings of the three realms from all torments,
-Bestowing the fine, cool shade of benefit and happiness— Noble Goddess White Parasol, confer supreme dharani blessings! ^42-1-81
+Bestowing the fine, cool shade of benefit and happiness—
+Noble Goddess White Parasol, confer supreme dharani blessings! ^42-1-81
 
 Pray thus. The wisdom goddess returns to her natural abode; the commitment goddess dissolves into one’s own heart; rest in luminous clarity. Know the torma offerings through the standard ritual manuals. ^42-1-82
 
@@ -8976,9 +9332,11 @@ Pray thus. The wisdom goddess returns to her natural abode; the commitment godde
 
 Namo Śākyamunaye! ^43-1
 
-The supreme consort associated with Amitāyus is the White-Clad Lady.
+The supreme consort associated with Amitāyus is the
+White-Clad Lady.
 This goddess is her extremely wrathful manifestation.
-Her purpose is to bring about rebirth in Sukhāvatī, the Land of Bliss.
+Her purpose is to bring about rebirth in Sukhāvatī, the
+Land of Bliss.
 In order to bind the Mamo protectors and their companions under sacred oath, ^43-2
 
 This goddess manifested from the uṣṇīṣa of the Buddha, the Sage.
@@ -8988,14 +9346,17 @@ The sounds of the sūtra and dhāraṇī resounded;
 therefore it is called “Uṣṇīṣa.” ^43-3
 
 Although this teaching belongs to Kriyā Tantra,
-It can be practiced in a manner resembling Highest Yoga Tantra.
+It can be practiced in a manner resembling Highest
+Yoga Tantra.
 Jetāri, Vajrāsana, and others,
 And many great siddhas practiced it in this way, making it easy to put into practice. ^43-4
 
 Beginning with Garab Dorje and Mañjuśrīmitra,
 And transmitted to Vimalamitra—this is the Nyingma tradition;
-Together with the treasure teaching of Guru TrakthungNakpo,
-The Indian scriptures of the Ocean of Sādhanas and the Hundred Sādhanas, ^43-5
+Together with the treasure teaching of Guru
+TrakthungNakpo,
+The Indian scriptures of the Ocean of Sādhanas and the
+Hundred Sādhanas, ^43-5
 
 And works by Meaningful to behold, Wangchuk Dorje,
 and others—
@@ -9028,7 +9389,8 @@ Each head bears a vajra mark and has three eyes.
 Her body is white, and she possesses countless millions of eyes.
 Her eyes are opened wide and glance fiercely like flashes of lightning. ^43-10
 
-With five hundred right hands and five hundred left hands She raises blazing swords that accomplish whatever is intended.
+With five hundred right hands and five hundred left hands
+She raises blazing swords that accomplish whatever is intended.
 With her five hundred right legs extended, she subdues every source of fear.
 With her five hundred left legs bent, she subdues all harmful spirits. ^43-11
 
@@ -9072,7 +9434,8 @@ our possessions, and all those around us—throughout both day and night. ^43-21
 All buried curses, bindings, and ties upon the body,
 speech, and mind of myself and those to be protected— open, open! Release, release! ^43-25
 
-All buried curses, bindings, and restrictions: SARVA APANĀYA SVĀHĀ! ^43-26
+All buried curses, bindings, and restrictions: SARVA
+APANĀYA SVĀHĀ! ^43-26
 
 Pacify all evil: ŚĀNTIṀ KURU YE SVĀHĀ! ^43-27
 
@@ -9082,7 +9445,8 @@ Recite this section seven times as the best, five times as medium, or three time
 
 The Heart Mantra: HUNG MA MA HUNG NI SVA HA ^43-30
 
-The Near-Heart Mantra: OM MA MA HUNG NI SVA HA OṀ MAMA HŪṀ NI SVĀHĀ ^43-31
+The Near-Heart Mantra: OM MA MA HUNG NI SVA HA
+OṀ MAMA HŪṀ NI SVĀHĀ ^43-31
 
 Through the merit of practicing this meditation and recitation, ^43-32
 
@@ -9128,7 +9492,8 @@ Chi-wadren-ching dam-chödö-na yang.
 Although one remembers death and wishes to practice the sacred Dharma, ^43-46
 
 Dam-chötsül-zhinchö-pékel-wamé.
-One may lack the good fortune to practice the sacred Dharma properly. ^43-47
+One may lack the good fortune to practice the sacred
+Dharma properly. ^43-47
 
 Nam-chi cha-mé chi-wa dog-tab mé.
 There is no certainty when death will come, and there is no way to turn death away forever. ^43-48
@@ -9149,7 +9514,8 @@ Ngön-tséchö-gyel Tri-song Déu-tsengyi.
 In former times, Dharma King TrisongDetsen ^43-53
 
 Ta-ü khe-pa gya-tsa den-drang né.
-Invited more than one hundred learned scholars from India, Tibet, and surrounding lands. ^43-54
+Invited more than one hundred learned scholars from
+India, Tibet, and surrounding lands. ^43-54
 
 Ka-gyur Ten-gyur tam-chéBö-du gyur.
 They translated the teachings that became the Kangyur and Tengyur into Tibetan. ^43-55
@@ -9158,13 +9524,15 @@ Dé-dügyel-pöku-rim jé-dog la.
 At that time, when a protective rite was required for the king to repel harmful magic, ^43-56
 
 Ka-gyurnang-né di-lézab-ma nyé.
-Nothing more profound than this was found within the Kangyur. ^43-57
+Nothing more profound than this was found within the
+Kangyur. ^43-57
 
 Gyel-pöku-rim jé-dog di-la jé.
 Therefore, this practice was performed as the king’s protective rite for repelling harmful magic. ^43-58
 
 Gya-gar mu-teg Gya-nag hwa-shang dang.
-The Indian non-Buddhist practitioners and the Chinese Hwashang, ^43-59
+The Indian non-Buddhist practitioners and the Chinese
+Hwashang, ^43-59
 
 Bö-kyiBön-po kün-kyangnö-ma nü.
 And all the Tibetan Bön practitioners, were unable to harm him. ^43-60
@@ -9176,7 +9544,8 @@ Di-la gyün-du tug-dam zhel-döndzé.
 Constantly maintained this as his personal daily practice. ^43-62
 
 Kar-ten tsé-né lag-kyangnö-ma nü.
-The text says that although he destroyed the Karma Kagyu establishment, harmful forces were unable to injure him. ^43-63
+The text says that although he destroyed the Karma
+Kagyu establishment, harmful forces were unable to injure him. ^43-63
 
 Dé-chirjé-dog di-lézab-pa mé.
 Therefore, it is said that there is nothing more profound than this for repelling harmful magic. ^43-64
@@ -9206,7 +9575,8 @@ Nam-zhig di-né chi-pögyur-ma-tag.
 Whenever the time comes to die and depart from this life, ^43-72
 
 Dé-wa-chengyizhing-der kyé-war sung.
-It is taught that one will be born in the Pure Land of Sukhāvatī. ^43-73
+It is taught that one will be born in the Pure Land of
+Sukhāvatī. ^43-73
 
 Tsé-di kyen-dog chi-ma zhing-khamtob.
 In this life adverse circumstances are turned away; in the next, one attains a pure realm. ^43-74
@@ -9385,14 +9755,16 @@ May they be pacified. ^43-129
 
 May the hosts of blazing wrathful dakinis
 subdue every enemy and obstacle.
-May they reduce their bodies and speech to particles of ash and guide their consciousnesses into the expanse of reality. ^43-130
+May they reduce their bodies and speech to particles of ash
+and guide their consciousnesses into the expanse of reality. ^43-130
 
 May the eighty thousand kinds of obstructing forces be pacified.
 May we be free from harmful and adverse circumstances.
 May our wishes be fulfilled, and may everything be abundant.
 Through this auspiciousness, may there be happiness and well-being here today. ^43-131
 
-It is said that this prayer was composed by Khamtrul Kunga Tenzin. ^43-132
+It is said that this prayer was composed by Khamtrul
+Kunga Tenzin. ^43-132
 
 ## 44. Long Life Prayer of the 14th Gyalwang ^44-0
 
@@ -9429,7 +9801,8 @@ and the great tradition of the teachings of scripture and realization— ^45-3
 
 Of the traditions in general, and especially of the lineage that transmits realization,
 May your power to practise and spread its essential teachings grow strong
-Through meditation on the meaning of the Three Baskets and the classes of tantra,
+Through meditation on the meaning of the Three
+Baskets and the classes of tantra,
 Through hearing and reflection, they attained the state of a learned master.
 may you bring genuine experience to its fullest measure.
 May you live long as a glory to the practice lineage. ^45-4
@@ -9445,13 +9818,16 @@ and by the strength of our deep devotion,
 may the aims of this prayer be fulfilled spontaneously,
 without effort. ^45-6
 
-The Buddhist monk Tenzin Gyatso composed this prayer, together with its opening verses, on November 10, 2000, so that TaklungShabdrung Tenzin Gyurme Chökyi Wangchuk Rinpoche might live long and his enlightened activities might flourish for the benefit of the teachings and beings. ^45-7
+The Buddhist monk Tenzin Gyatso composed this prayer, together with its opening verses, on November
+10, 2000, so that TaklungShabdrung Tenzin Gyurme
+Chökyi Wangchuk Rinpoche might live long and his enlightened activities might flourish for the benefit of the teachings and beings. ^45-7
 
 ## 46. Long-Life Prayer Called “May All Virtue and Goodness Increase” ^46-0
 
 Lord of all, Vajradhara, who possesses the sevenfold union;
 Tilopa, Nāropa, and the three—Marpa, Milarepa, and Dagpo;
-root and lineage lamas, chosen deities, and the Three Jewels: may you bless this prayer.
+root and lineage lamas, chosen deities, and the Three
+Jewels: may you bless this prayer.
 May the ocean of refuge-objects grant auspicious things ^46-1
 
 With an unwavering resolve to uphold the Victorious One’s teachings,
@@ -9476,13 +9852,16 @@ May the light of virtue and goodness increase everywhere. ^46-5
 Sarva maṅgalam
 may all be auspicious. How virtuous! ^46-6
 
-This prayer, entitled May All Virtue and Goodness Increase, asks that TaklungMatrul Tenzin Kunzang Jigme live long for the benefit of the teachings and beings, and that his activities flourish. The Taklung lamas and monks remaining in Tibet requested it through Gyaltsen Lungtok, whom they sent to serve the tulku and who presented the request with a ceremonial scarf. In response, the Buddhist monk Tenzin Gyatso composed it on August 2, 1989, corresponding to the first day of the sixth month of the Tibetan Earth Snake year. ^46-7
+This prayer, entitled May All Virtue and Goodness
+Increase, asks that TaklungMatrul Tenzin Kunzang
+Jigme live long for the benefit of the teachings and beings, and that his activities flourish. The Taklung lamas and monks remaining in Tibet requested it through Gyaltsen Lungtok, whom they sent to serve the tulku and who presented the request with a ceremonial scarf. In response, the Buddhist monk Tenzin Gyatso composed it on August 2, 1989, corresponding to the first day of the sixth month of the Tibetan Earth Snake year. ^46-7
 
 ## 47. Long-Life Prayer Called “The Sun of Speech” ^47-0
 
 O Sun of Speech, supreme guide and crown of the Śākyas;
 the seventeen great scholars and accomplished masters;
-Tilopa and Nāropa; Marpa, Milarepa, and Dagpo;TaklungThangpa-
+Tilopa and Nāropa; Marpa, Milarepa, and
+Dagpo;TaklungThangpa-
 and all the lineage lamas: please grant your blessings of virtue and goodness. ^47-1
 
 Buddha Amitāyus, lord of the victorious ones, moved by compassion for beings of the five classes,
@@ -9505,7 +9884,10 @@ and the power of the truth of the precious Three Jewels,
 may every aim of this prayer
 be fulfilled easily and without obstacles. ^47-5
 
-TaklungMatrul Rinpoche requested that, when the hair of the young reincarnation of TaklungTsetrul Rinpoche was cut in the customary ceremony, the child also be given a name and a long-life prayer. In response, the Dalai Lama gave the child the name Tenzin Chökyi Wangchuk and composed this prayer. He wrote it on the twelfth day of the fourth month of the Fire Bird year of the seventeenth Tibetan cycle, corresponding to June 6, 2017. May it be virtuous. ^47-6
+TaklungMatrul Rinpoche requested that, when the hair of the young reincarnation of TaklungTsetrul Rinpoche was cut in the customary ceremony, the child also be given a name and a long-life prayer. In response, the
+Dalai Lama gave the child the name Tenzin Chökyi
+Wangchuk and composed this prayer. He wrote it on the twelfth day of the fourth month of the Fire Bird year of the seventeenth Tibetan cycle, corresponding to June
+6, 2017. May it be virtuous. ^47-6
 
 ## 48. Long-Life Prayer Called “A Melodious Song for the Attainment of Deathlessness” ^48-0
 
@@ -9548,7 +9930,8 @@ Bless me never to be separated from the lama. ^48-8
 
 May the teachings, the sole source of benefit and happiness,
 endure for a long time.
-And may the lives of those who uphold the teachings remain as steadfast as a victory banner. ^48-9
+And may the lives of those who uphold the teachings
+remain as steadfast as a victory banner. ^48-9
 
 ## 49. Butter Lamp Prayer by the Venerable Lord (Atisha) ^49-0
 
@@ -9556,7 +9939,8 @@ Butter Lamp Prayer spoken by the Peerless Venerable Lord, Glorious Atisha ^49-1
 
 May this butter lamp vessel become as vast as the billionfold universe! ^49-2
 
-May this wick grow as large as the Supreme King of Mountains! ^49-3
+May this wick grow as large as the Supreme King of
+Mountains! ^49-3
 
 May the butter oil become as vast as the ocean at the edge of the world! ^49-4
 
@@ -9564,7 +9948,8 @@ May a billion of these lamps appear before each and every Buddha! ^49-5
 
 Their light shining from the pinnacle of existence down ^49-6
 
-to the lowest hell, clearly revealing all the realms of Buddhas and Bodhisattvas in the ten directions! ^49-7
+to the lowest hell, clearly revealing all the realms of
+Buddhas and Bodhisattvas in the ten directions! ^49-7
 
 [Ed: no English translation given in source] ^49-8
 
@@ -9579,7 +9964,8 @@ and all the deities of all the mandalas, I make this offering! ^49-10
 May all beings, particularly my own parents,
 in this life and in all lives to come, wherever we are born,
 directly perceive all the perfect buddha realms
-and remain inseparable from the Lord of Boundless Light (Amitabha)! ^49-11
+and remain inseparable from the Lord of Boundless
+Light (Amitabha)! ^49-11
 
 And by the power of truth of this aspiration prayer
 to the Three Jewels and all the assembled deities of the Three Roots,
@@ -9608,8 +9994,10 @@ The unsurpassed Guide is the Precious Sangha.
 May there be the auspiciousness of the Three Jewels,
 the sources of refuge! ^50-3
 
-Glorious Protectors Four-Armed Mahākāla, Six-Armed Mahākāla, Legden, and the Protector of the Tent,
-The Dharma guardians Four-Faced Protector and the Goddess Düsolma,
+Glorious Protectors Four-Armed Mahākāla, Six-Armed
+Mahākāla, Legden, and the Protector of the Tent,
+The Dharma guardians Four-Faced Protector and the
+Goddess Düsolma,
 The activity protectors Sogdü and the Great King Vaiśravaṇa,
 May there be the auspiciousness of the wealth lords and yakṣas! ^50-4
 
@@ -9633,7 +10021,8 @@ immutable like Mount Meru!
 May there be the auspiciousness of enlightened Speech endowed with its sixty qualities!
 May there be the auspiciousness of enlightened Mind,
 free from extremes and conceptual elaborations!
-May there be the auspiciousness of the Victorious Ones’ enlightened Body, Speech, and Mind! ^50-8
+May there be the auspiciousness of the Victorious
+Ones’ enlightened Body, Speech, and Mind! ^50-8
 
 May the lotus feet of the Gurus, the glory of the teachings, remain firm.
 May beings who uphold the teachings fill the whole earth.
@@ -9664,7 +10053,8 @@ May the hostile forces of Māras, obstructors, and all that causes harm be pacif
 And may glory abide and auspiciousness prevail continually, day and night! ^51-1
 
 The unsurpassed supreme Dharma is the truth of the nature of reality.
-Through the blessings of the truth of the sacred Dharma, the nectar of immortality,
+Through the blessings of the truth of the sacred
+Dharma, the nectar of immortality,
 May we be free from faults and wrongdoing, and may our accumulation of virtue greatly increase.
 May glory abide and auspiciousness prevail continually,
 day and night! ^51-2
@@ -9736,34 +10126,40 @@ To Sangye Ön, who brings relief and liberation, I offer this prayer. ^53-2
 Victorious Ones dwelling in realms throughout all- pervading space, together with the Dharma they taught,
 Bodhisattvas of the ten bhūmis, Śrāvakas,
 Pratyekabuddhas, and the teachings of discipline,
-The Three Roots and all other authentic sources of refuge— All of you who are valid and true, please come as witnesses to this prayer of aspiration. ^53-3
+The Three Roots and all other authentic sources of refuge—
+All of you who are valid and true, please come as witnesses to this prayer of aspiration. ^53-3
 
 From all the scriptural teachings of the Sage, beyond mere words,
 The Dakpo lineage reveals primordial wisdom directly and vividly.
 May the teachings of the glorious Taklungpa, who perfected devotion,
-Flourish greatly, and may the communities of the Sangha increase! ^53-4
+Flourish greatly, and may the communities of the
+Sangha increase! ^53-4
 
 The vows that restrain the faults of conditioned existence are the gateway to complete liberation.
 Through the three trainings of ethical discipline,
 meditative concentration, and wisdom,
 May the teachings of the glorious Taklungpa, whose pure conduct is stainless,
-Flourish greatly, and may the communities of the Sangha increase! ^53-5
+Flourish greatly, and may the communities of the
+Sangha increase! ^53-5
 
 The seed that causes peace and happiness, eliminates misfortune, and leads to omniscience,
 Is engaging for others’ welfare in the ocean-like practice of the six pāramitās.
 May the teachings of the glorious Taklungpa, supreme among the children of the Victorious Ones,
-Flourish greatly, and may the communities of the Sangha increase! ^53-6
+Flourish greatly, and may the communities of the
+Sangha increase! ^53-6
 
 The outer world and its inhabitants—all appearances,
 sounds, and thoughts—are primordial wisdom;
 Within the mandala, they spontaneously arise as the deities in their various forms.
 May the teachings of the glorious Taklungpa, supreme among Vidyādharas,
-Flourish greatly, and may the communities of the Sangha increase! ^53-7
+Flourish greatly, and may the communities of the
+Sangha increase! ^53-7
 
 Beautifully clothed in the three trainings and the conduct of awakening,
 The supreme treasury of the four jewels of profound meaning,
 May the teachings of the glorious Taklungpa, whose life of liberation is incomparable,
-Flourish greatly, and may the communities of the Sangha increase! ^53-8
+Flourish greatly, and may the communities of the
+Sangha increase! ^53-8
 
 May those who carefully restrain their conduct through discipline uphold their own Dharma tradition.
 May they become greatly learned and properly establish a gentle and disciplined mind.
@@ -9772,7 +10168,8 @@ Increasing beyond measure and becoming an ornament beautifying the teachings! ^5
 
 In the three worlds, it is the source of every benefit and happiness without exception,
 And the medicine that pacifies suffering together with its causes.
-May the Buddha’s teachings in general and the Taklungpa practice lineage in particular
+May the Buddha’s teachings in general and the
+Taklungpa practice lineage in particular
 Blaze brilliantly at the very summit of existence! ^53-10
 
 Through the compassionate blessings of the vast ocean of all the Three Jewels without exception,
@@ -9848,7 +10245,8 @@ Through that, may the Dharma tradition greatly flourish! ^54-12
 In the past, beings engaged in negative actions
 Were clearly brought to spiritual maturity through my loving-kindness.
 I established them well upon the three vehicles.
-Through that, may the offering and generosity of Dharma greatly increase! ^54-13
+Through that, may the offering and generosity of
+Dharma greatly increase! ^54-13
 
 In the past, when I possessed skillful means and wisdom,
 I freed sentient beings from wrong views,
@@ -9869,7 +10267,8 @@ May the teachings blaze for a very long time! ^54-16
 Through the power of the two accumulations gathered by myself and others throughout the three times—past,
 present, and future— ^54-17
 
-May the teachings of the Victorious Lord Mangala Śrī Blaze and flourish for a very long time! ^54-18
+May the teachings of the Victorious Lord Mangala Śrī
+Blaze and flourish for a very long time! ^54-18
 
 To the farthest limits of the great ocean and the wealth- holding earth,
 in the centre, above the World of Brahma,
