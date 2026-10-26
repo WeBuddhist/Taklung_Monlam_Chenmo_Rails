@@ -4,7 +4,7 @@
     "type": "split",
     "children": [
       {
-        "id": "8896e91e801fbab2",
+        "id": "2fc93c4efded5d0f",
         "type": "tabs",
         "children": [
           {
@@ -20,7 +20,13 @@
               "icon": "lucide-file",
               "title": "Bo-Taklung_Kagyu_Monlam_Chanting_Text"
             }
-          },
+          }
+        ]
+      },
+      {
+        "id": "8896e91e801fbab2",
+        "type": "tabs",
+        "children": [
           {
             "id": "6b73d27b55c050e3",
             "type": "leaf",
@@ -108,7 +114,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200
+    "width": 200,
+    "collapsed": true
   },
   "right": {
     "id": "08fb4a0a47ab3b49",
@@ -225,11 +232,11 @@
       "gemini-scribe:Gemini Scribe: Agent Mode": false
     }
   },
-  "active": "d066ca5c15f520a5",
+  "active": "6b73d27b55c050e3",
   "lastOpenFiles": [
-    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
     "1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration.md",
+    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
     "0-INBOX/raw-data/སྟག་ལུང་སྨོན་ལམ་ཞལ་འདོན།.pdf",
     "README.md",
     "gemini-scribe/Scheduled-Tasks/Runs",
