@@ -55,8 +55,7 @@
               "title": "En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -235,9 +234,9 @@
   },
   "active": "d066ca5c15f520a5",
   "lastOpenFiles": [
-    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration.md",
-    "1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
+    "1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
+    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration.md",
     "0-INBOX/raw-data/སྟག་ལུང་སྨོན་ལམ་ཞལ་འདོན།.pdf",
     "README.md",
     "gemini-scribe/Scheduled-Tasks/Runs",
