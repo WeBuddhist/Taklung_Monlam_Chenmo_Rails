@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
+                "file": "1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "En-Taklung_Kagyu_Monlam_Chanting_Text_Translation"
+              "title": "Bo-Taklung_Kagyu_Monlam_Chanting_Text"
             }
           }
         ]
@@ -199,8 +199,8 @@
   },
   "active": "d066ca5c15f520a5",
   "lastOpenFiles": [
-    "1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
+    "1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration.md",
     "0-INBOX/raw-data/སྟག་ལུང་སྨོན་ལམ་ཞལ་འདོན།.pdf",
     "README.md",

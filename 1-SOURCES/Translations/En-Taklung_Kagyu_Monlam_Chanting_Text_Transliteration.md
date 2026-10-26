@@ -11,33 +11,9 @@ book_title_en: "Glorious Taklung Kagyu International Great Aspiration Prayer, Ar
 status: 0-raw
 root_text: 1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md
 translation_basis: "Printed phonetic transliteration, all-capitals layer of the source book"
-covers_verses: 0-0–54-end
+covers_verses: 1-0–54-end
 ---
 # GLORIOUS TAKLUNG KAGYU INTERNATIONAL GREAT ASPIRATION PRAYER — Transliteration
-
-## 0. PUBLISHER’S NOTE ^0-0
-
-[Ed: no transliteration given in source] ^0-1
-
-[Ed: no transliteration given in source] ^0-2
-
-[Ed: no transliteration given in source] ^0-3
-
-[Ed: no transliteration given in source] ^0-4
-
-[Ed: no transliteration given in source] ^0-5
-
-[Ed: no transliteration given in source] ^0-6
-
-[Ed: no transliteration given in source] ^0-7
-
-[Ed: no transliteration given in source] ^0-8
-
-[Ed: no transliteration given in source] ^0-9
-
-### 0.1 [Ed: Table of Contents — no English title given in source] ^0-1-0
-
-[Ed: no transliteration given in source] ^0-1-1
 
 ## 1. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on. ^1-0
 

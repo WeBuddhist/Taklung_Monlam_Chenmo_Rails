@@ -11,34 +11,9 @@ book_title_en: "Glorious Taklung Kagyu International Great Aspiration Prayer, Ar
 status: 0-raw
 root_text: 1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md
 translation_basis: "English translation layer printed in the source book"
-covers_verses: 0-0–54-end
+covers_verses: 1-0–54-end
 ---
-# GLORIOUS TAKLUNG KAGYU INTERNATIONAL GREAT ASPIRATION PRAYER. Arranged for Recitation
-
-## 0. PUBLISHER’S NOTE ^0-0
-
-[Ed: no English translation given in source] ^0-1
-
-I am delighted, and it is meaningful to convene the first International Taklung Kagyu Monlam Chenmo at the sacred site of Lumbinī, where the Buddha Śākyamuni was born. Particularly, since the founding of the Taklung Kagyu school of Tibetan Buddhism almost nine hundred years ago, this is the first time in history to gather all the followers of Taklung Kagyu in one place for this great prayer ceremony. Thus, the importance and meaning of this prayer congregation are invaluable. ^0-2
-
-This prayer book for the International Taklung Kagyu Monlam Chenmo is intended for devotees and practitioners to recite and practice during the prayer session. I also hope that, through this means, the teachings of the Taklung Kagyu will flourish and deepen the connections and harmony amongst teachers, disciples, monasteries and Dhrama Centers around the world. ^0-3
-
-I would also like to thank the Standing Committee members of the Taklung Kagyu Monlam Chenmo, who have taken the responsibility to successfully complete and publish this prayer book. ^0-4
-
-I would like to express my appreciation and heartfelt thanks to all the supporters and concerned individuals who made this prayer book possible, especially the book’s sponsor, the family of Mr. Lobsang Tashi Bonpotsang. We also dedicate the merits and offer prayers for the families of Mr. Lobsang Tashi Bonpotsang, the late Mr. Bonpo Gyalwang, the late Bumo Woeser, the late Dorje Tashi, the late Konchok Sangmo, the late Dhondup Wangdon, the late Jampal Dorje, the late Nyernga Dolma, and the late Sonam Choedup. ^0-5
-
-The compiler and translator of this prayer book, Khenpo Lophel would like to thank Khenpo Kunga, book designer Gyaltsen Dhargyal, Eric Forgeng, Dakpa Gyatso Ācārya, and Dhamchoe la for translating, and editing this book. ^0-6
-
-Finally, through this virtue and merit, may all the deceased transfer their consciousness through the intermediate state without hindrance or obstacle! May the lives, merits, and wealth of those who have supported this be increased! May all beings be free from suffering and find happiness! And ultimately, may they all attain enlightenment! ^0-7
-
-Khenpo Lophel
-October 10, 2026 ^0-8
-
-Sarva-Kalyāṇa-Bhavantuḥ ^0-9
-
-### 0.1 [Ed: Table of Contents — no English title given in source] ^0-1-0
-
-[Ed: no English translation given in source] ^0-1-1
+# GLORIOUS TAKLUNG KAGYU INTERNATIONAL GREAT ASPIRATION PRAYER Arranged for Recitation
 
 ## 1. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on. ^1-0
 
