@@ -55,7 +55,8 @@
               "title": "En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -233,7 +234,7 @@
       "gemini-scribe:Gemini Scribe: Agent Mode": false
     }
   },
-  "active": "d066ca5c15f520a5",
+  "active": "669800731d931c57",
   "lastOpenFiles": [
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
     "1-SOURCES/Text/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
