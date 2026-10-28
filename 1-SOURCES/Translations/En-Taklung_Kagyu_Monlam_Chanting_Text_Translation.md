@@ -9108,7 +9108,7 @@ To the supreme Guru and Mother White Umbrella, ^41-2
 
 Who are inseparable, I pay homage. ^41-3
 
-### 41.1 Refuge ^41-1-0
+Refuge ^41-1-0
 
 I instantly transform into the Lord of Sages (Buddha Shakyamuni), golden in color, ablaze with the glorious
 major and minor marks. ^41-4
