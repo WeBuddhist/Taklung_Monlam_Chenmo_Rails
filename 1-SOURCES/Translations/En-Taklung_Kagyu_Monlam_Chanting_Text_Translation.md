@@ -8043,7 +8043,9 @@ Swiftly attain Buddhahood. ^38-33
 Spoken by Thangpa Rinpoche Tashi Pal. Sarva
 Maṅgalam— May all be auspicious! ^38-34
 
-## 39. In the language of India: Arjamanjushrinamasamgiti ^39-0
+## 39. Chanting the Names of Manjusri ^39-0
+
+In the language of India: Arjamanjushrinamasamgiti 
 
 In the language of Tibet: Jam Pal gyi Tsen Yang Dak Par Jö Pa ^39-1
 
