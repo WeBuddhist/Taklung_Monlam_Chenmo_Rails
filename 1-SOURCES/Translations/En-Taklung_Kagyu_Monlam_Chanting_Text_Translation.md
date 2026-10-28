@@ -10222,11 +10222,7 @@ And established them in the correct view.
 May my followers always remain devoted!
 May the teachings blaze for a very long time! ^53-16
 
-Through the power of the two accumulations gathered by myself and others throughout the three times—past,
-present, and future— ^53-17
-
-May the teachings of the Victorious Lord Mangala Śrī
-Blaze and flourish for a very long time! ^53-18
+Through the power of the two accumulations gathered by myself and others throughout the three times—past, present, and future. May the teachings of the Victorious Lord Mangala Śrī, Blaze and flourish for a very long time! ^53-18
 
 To the farthest limits of the great ocean and the wealth- holding earth,
 in the centre, above the World of Brahma,
