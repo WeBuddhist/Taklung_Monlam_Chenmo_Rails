@@ -234,6 +234,7 @@
   },
   "active": "d066ca5c15f520a5",
   "lastOpenFiles": [
+    "0-INBOX/temp/en-translation-removed-lines.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
     "0-INBOX/raw-data/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration.md",
@@ -268,7 +269,6 @@
     "4-SYSTEM/Skills/interlinear-gloss/SKILL.md",
     "4-SYSTEM/Skills/glossary-combine/SKILL.md",
     "4-SYSTEM/Skills/glossary-extract-raw/SKILL.md",
-    "4-SYSTEM/Skills/format-commentary/SKILL.md",
-    "4-SYSTEM/Skills/format-root-text/SKILL.md"
+    "4-SYSTEM/Skills/format-commentary/SKILL.md"
   ]
 }
