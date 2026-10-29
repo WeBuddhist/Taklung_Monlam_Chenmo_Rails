@@ -923,12 +923,12 @@ May the Doctrine pervade all the great Bhumis! ^3-147
 
 <small>This was written by DrigungKyobpa, and the last shloka was added as a praise by Venerable Ngawang Namgyal, incorporating some of Thangpa’s extensive biography in 17 chapters, and spoken based on this work.</small> ^3-148
 
-[Ed: no English translation given in source] ^3-149
+Homage to Guru Limitless Jewels! ^3-149
 
-Homage to Guru Limitless Jewels!
 Unequalled Dharma Lord, endowed with meaning and supreme signs,
 king of wish-fulfilling power, who fulfills all needs, desires, and hopes,
-glorious protector of existence and peace, meaningful to see, I pray to you, deceased supreme being! ^3-150
+glorious protector of existence and peace, meaningful to see,
+I pray to you, deceased supreme being! ^3-150
 
 Endowed with the sixty qualities of Brahma’s precious speech,
 disciple’s Lord Protector, who shows the unmistaken path,
@@ -8705,9 +8705,9 @@ was able to avert all harmful forces of negativity and obstacles, so, in the ver
 
 May I also, by the power and strength of my contemplating the profound meaning of Transcendent Wisdom, and reciting its words: May all negative influences be averted! * ^35-68
 
-[Ed: no English translation given in source] ^35-69
+May they be destroyed! * May they be pacified! * ^35-69
 
-May they be destroyed! * May they be completely pacified! * May they be pacified! * ^35-70
+May they be completely pacified! * ^35-70
 
 Everything that arises interdependently
 is unceasing and unborn,
@@ -8747,9 +8747,9 @@ From his crown protuberance (usnisa), a white OṀ radiates into the sky before 
 
 resting upon a beautiful mandala of a lotus and moon disk. ^36-9
 
-[Ed: no English translation given in source] ^36-10
+Light rays emanate from it, making offerings to the Noble Ones ^36-10
 
-Light rays emanate from it, making offerings to the Noble Ones and fulfilling the needs of sentient beings. ^36-11
+and fulfilling the needs of sentient beings. ^36-11
 
 Re-absorbing back, it transforms into the Bhagavati, the Queen of Great Knowledge Mantras, the White Parasol Crown-Protuberance of all Tathagatas, Unconquerable and Reverting All Harm. Her body color is brilliant white like the autumn moon. ^36-12
 
@@ -8793,9 +8793,9 @@ driving away all harmful spirits, obstacles, and misguiding forces beyond a peri
 
 The earth, sky, and intermediate directions are bound by the mantra and its light rays. ^36-32
 
-A vajra ground, fence, net, tent, and canopy are formed, ^36-33
+A vajra ground, fence, net, ^36-33
 
-[Ed: no English translation given in source] ^36-34
+tent, and canopy are formed, ^36-34
 
 surrounded on the outside by a raging wall of fire—a secure protective wheel. ^36-35
 
