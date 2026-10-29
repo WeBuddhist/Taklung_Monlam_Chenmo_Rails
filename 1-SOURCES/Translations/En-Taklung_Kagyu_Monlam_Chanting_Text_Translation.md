@@ -9610,7 +9610,7 @@ Through the power of the words of those who speak the truth,
 And through the swift and powerful activity of the vajra-bound oath-keeping protectors,
 May every aspiration made here be completely accomplished! ^48-11
 
-<small>This was written by TaklungpaChöyingLhündrub. May it be virtuous!</small> ^48-12
+<small>This was written by Taklungpa Chöying Lhündrub. May it be virtuous!</small> ^48-12
 
 ## 49. The Prayer for the Teachings to Blaze ^49-0
 
