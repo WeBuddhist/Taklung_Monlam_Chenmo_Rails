@@ -28,12 +28,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
+                "file": "1-SOURCES/Text/18. ཐུབ་དབང་གནས་བརྟན་བཅུ་དྲུག་གི་མཆོད་སྤྲིན་སྲིད་ཞིའི་ཕུན་ཚོགས་རྣམ་པར་འཕེལ་བ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ"
+              "title": "18. ཐུབ་དབང་གནས་བརྟན་བཅུ་དྲུག་གི་མཆོད་སྤྲིན་སྲིད་ཞིའི་ཕུན་ཚོགས་རྣམ་པར་འཕེལ་བ་ཞེས་བྱ་བ་བཞུགས་སོ"
             }
           }
         ],
@@ -50,12 +50,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1-SOURCES/Translations/06. The Praise of the Twelve Deeds of the Bhagavan, the Powerful Sage.md",
+                "file": "1-SOURCES/Translations/18. Increasing the Excellency of Samsara and Nirvana Offering Clouds of the Sixteen Elders of the Buddha.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "06. The Praise of the Twelve Deeds of the Bhagavan, the Powerful Sage"
+              "title": "18. Increasing the Excellency of Samsara and Nirvana Offering Clouds of the Sixteen Elders of the Buddha"
             }
           },
           {
@@ -251,10 +251,12 @@
   },
   "active": "6b73d27b55c050e3",
   "lastOpenFiles": [
+    "1-SOURCES/Translations/06. The Praise of the Twelve Deeds of the Bhagavan, the Powerful Sage.md",
+    "1-SOURCES/Text/18. ཐུབ་དབང་གནས་བརྟན་བཅུ་དྲུག་གི་མཆོད་སྤྲིན་སྲིད་ཞིའི་ཕུན་ཚོགས་རྣམ་པར་འཕེལ་བ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
     "1-SOURCES/Translations/03. The Fifteen Dharma Practices of the Taklung.md",
     "1-SOURCES/Translations/02. The Seven Branches Prayer.md",
     "1-SOURCES/Translations/01. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on.md",
-    "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
     "1-SOURCES/Translations/09. The Tea Offering Deathless Amrita.md",
     "1-SOURCES/Text/09. ཇ་མཆོད་འཆི་མེད་བདུད་རྩི.md",
     "1-SOURCES/Text/47. སྟོན་མཆོག་དམ་པ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
@@ -276,8 +278,6 @@
     "1-SOURCES/Translations/16. Praise of the Previous Lives of TaklungThangpa Rinpoche.md",
     "1-SOURCES/Translations/15. Condensed Birth Stories of Thangpa.md",
     "1-SOURCES/Translations/14. This is the Praise of the Life Story of Glorious Taklung Tangpa called the Great Drum of Sincere Faith.md",
-    "1-SOURCES/Translations/13. This is the Prayer Based on the Biography of the Protector of Beings Phagmo Drupa called the Pleasant Rain of ….md",
-    "1-SOURCES/Translations/12. Knowing the Space of Objects of Knowledge.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.12d3beb0bf36",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.294c8f46efcc",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.57caf5ded9ce",
