@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1-SOURCES/Text/11. བཀའ་བརྒྱུད་ལ་གསོལ་བ་འདེབས་པ་མ་ཎི་ཀའི་དོ་ཤལ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+                "file": "0-INBOX/raw-data/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "11. བཀའ་བརྒྱུད་ལ་གསོལ་བ་འདེབས་པ་མ་ཎི་ཀའི་དོ་ཤལ་ཞེས་བྱ་བ་བཞུགས་སོ"
+              "title": "Bo-Taklung_Kagyu_Monlam_Chanting_Text"
             }
           }
         ]
@@ -198,8 +198,9 @@
       "gemini-scribe:Gemini Scribe: Agent Mode": false
     }
   },
-  "active": "601365676f54f711",
+  "active": "eb2538ea3fa47051",
   "lastOpenFiles": [
+    "1-SOURCES/Text/11. བཀའ་བརྒྱུད་ལ་གསོལ་བ་འདེབས་པ་མ་ཎི་ཀའི་དོ་ཤལ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
     "1-SOURCES/Text/10. བླ་བརྒྱུད་གསོལ་འདེབས.md",
     "0-INBOX/raw-data/En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration.md",
     "1-SOURCES/Text/45. རྒྱལ་མཚན་རྩེ་མོ་བཞུགས་སོ.md",
@@ -225,7 +226,6 @@
     "1-SOURCES/Text/06. བཅོམ་ལྡན་འདས་ཐུབ་པའི་དབང་པོའི་མཛད་པ་བཅུ་གཉིས་ལ་མངོན་པར་བསྟོད་པ་བཞུགས་སོ.md",
     "1-SOURCES/Text/18. ཐུབ་དབང་གནས་བརྟན་བཅུ་དྲུག་གི་མཆོད་སྤྲིན་སྲིད་ཞིའི་ཕུན་ཚོགས་རྣམ་པར་འཕེལ་བ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
     "1-SOURCES/Translations/18. Increasing the Excellency of Samsara and Nirvana Offering Clouds of the Sixteen Elders of the Buddha.md",
-    "1-SOURCES/Translations/06. The Praise of the Twelve Deeds of the Bhagavan, the Powerful Sage.md",
     "0-INBOX/raw-data/སྟག་ལུང་སྨོན་ལམ་ཞལ་འདོན།.pdf",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.12d3beb0bf36",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.294c8f46efcc",
