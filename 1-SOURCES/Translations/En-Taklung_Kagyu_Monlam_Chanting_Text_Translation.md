@@ -5928,31 +5928,33 @@ May unsurpassable, supreme, sacred Original Awareness suddenly arise in me! ^24-
 
 Whatever Victorious Ones, supreme among humans, who are now abiding, and ^24-82
 
-[Ed: no English translation given in source] ^24-83
+those who have passed away, and likewise those who have not yet come, ^24-83
 
-in your vast ocean of praiseworthy enlightened qualities, joining my hands, I seek refuge! ^24-84
+in your vast ocean of praiseworthy enlightened qualities, ^24-84
 
-<small>This completes the Sutra of the Three Aggregates.</small> ^24-85
+joining my hands, I seek refuge! ^24-85
+
+<small>This completes the Sutra of the Three Aggregates.</small> ^24-86
 
 The three [negative] actions of body,
 The four of speech, and
 Whichever of the three of mind,
-[I] confess the Ten Non-Virtues individually. ^24-86
+[I] confess the Ten Non-Virtues individually. ^24-87
 
 From beginning-lessness down to the present,
 The Ten Non-virtues and the Five Limitless Acts,
 [committed] under the power of mind’s afflictions,
-I confess all evil actions! ^24-87
+I confess all evil actions! ^24-88
 
 By the power of desire-attachment, hatred, and ignorance,
 with body and speech and also likewise with mind,
 Whatever evil actions I have committed,
-I confess all of them individually! ^24-88
+I confess all of them individually! ^24-89
 
 All my evil deeds, the Five Limitless Actions,
 Whatever I have committed under the power of ignorance,
 by reciting this Confession of Downfalls,
-May they all, without exception, be quickly and completely purified! ^24-89
+May they all, without exception, be quickly and completely purified! ^24-90
 
 ## 25. The King of Aspirations for Noble Virtuous Conduct ^25-0
 
