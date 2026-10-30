@@ -8974,8 +8974,8 @@ Her facial hair blazes like a mass of fire, and her tongue is sharp like a sword
 At her throat are the sun and moon, while her own body blazes like a mass of fire.
 Visualize all harmful forces being completely scorched and burned to ashes. ^37-14
 
-<small>[Ed: no English translation given in source]
-[Ed: no English translation given in source]</small> ^37-15
+<small>Even if the visualization is not firmly established in the mind, simply meditating on the focal object is sufficient;
+by meditation alone, the suppressions, entrustments, verbal suppressions and the like are released, as taught by Guru Khrag-'thung Nag-po. It is important to recite this aloud.</small> ^37-15
 
 HŪṂ! Great Vajra Uṣṇīṣa Reversing Goddess, ^37-16
 
@@ -9117,7 +9117,7 @@ In their next life, may they be born in the Pure Land of Great Bliss. ^37-84
 
 Having been born there, may they accomplish immeasurable benefit for others. ^37-85
 
-<small>[Ed: no English translation given in source]</small> ^37-86
+<small>The White Parasol Reversal is as follows:</small> ^37-86
 
 BhagavatīSitātapatrā, and your hosts of deities, ^37-87
 
