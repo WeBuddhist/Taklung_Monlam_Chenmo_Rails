@@ -50,12 +50,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1-SOURCES/Translations/01. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on.md",
+                "file": "1-SOURCES/Translations/06. The Praise of the Twelve Deeds of the Bhagavan, the Powerful Sage.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "01. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on"
+              "title": "06. The Praise of the Twelve Deeds of the Bhagavan, the Powerful Sage"
             }
           },
           {
@@ -249,14 +249,15 @@
       "gemini-scribe:Gemini Scribe: Agent Mode": false
     }
   },
-  "active": "bdbe47f4869a79dd",
+  "active": "6b73d27b55c050e3",
   "lastOpenFiles": [
+    "1-SOURCES/Translations/03. The Fifteen Dharma Practices of the Taklung.md",
+    "1-SOURCES/Translations/02. The Seven Branches Prayer.md",
     "1-SOURCES/Translations/01. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on.md",
     "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
     "1-SOURCES/Translations/09. The Tea Offering Deathless Amrita.md",
     "1-SOURCES/Text/09. ཇ་མཆོད་འཆི་མེད་བདུད་རྩི.md",
     "1-SOURCES/Text/47. སྟོན་མཆོག་དམ་པ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
-    "1-SOURCES/Translations/03. The Fifteen Dharma Practices of the Taklung.md",
     "1-SOURCES/Translations/08. Praise of the King of Sages and Disciples Called The Loud Sound of Drums That Awakens All Beings Through ….md",
     "1-SOURCES/Text/49. བསྟན་འབར་མ་བཞུགས་སོ.md",
     "1-SOURCES/Text/46. ཆེ་བའི་ཆེ་མཆོག་ཞེས་བྱ་བ་བཞུགས་སོ.md",
@@ -277,7 +278,6 @@
     "1-SOURCES/Translations/14. This is the Praise of the Life Story of Glorious Taklung Tangpa called the Great Drum of Sincere Faith.md",
     "1-SOURCES/Translations/13. This is the Prayer Based on the Biography of the Protector of Beings Phagmo Drupa called the Pleasant Rain of ….md",
     "1-SOURCES/Translations/12. Knowing the Space of Objects of Knowledge.md",
-    "1-SOURCES/Translations/11. This is the Supplication of the Kagyu called the Manika Crystal.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.12d3beb0bf36",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.294c8f46efcc",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.57caf5ded9ce",
