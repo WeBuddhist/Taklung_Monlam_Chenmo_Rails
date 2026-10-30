@@ -21,8 +21,23 @@
               "icon": "lucide-file",
               "title": "Bo-Taklung_Kagyu_Monlam_Chanting_Text"
             }
+          },
+          {
+            "id": "bdbe47f4869a79dd",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "1-SOURCES/Text/03. སྟག་ལུང་པའི་ཆོས་སྤྱོད་བཅོ་ལྔ་བཞུགས་སོ.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "03. སྟག་ལུང་པའི་ཆོས་སྤྱོད་བཅོ་ལྔ་བཞུགས་སོ"
+            }
           }
-        ]
+        ],
+        "currentTab": 1
       },
       {
         "id": "8896e91e801fbab2",
@@ -116,8 +131,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 443.5,
-    "collapsed": true
+    "width": 443.5
   },
   "right": {
     "id": "08fb4a0a47ab3b49",
@@ -235,42 +249,43 @@
       "gemini-scribe:Gemini Scribe: Agent Mode": false
     }
   },
-  "active": "d066ca5c15f520a5",
+  "active": "bdbe47f4869a79dd",
   "lastOpenFiles": [
-    "0-INBOX/raw-data/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
     "0-INBOX/raw-data/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
+    "1-SOURCES/Translations/49. The Prayer for the Teachings to Blaze.md",
+    "1-SOURCES/Text/49. བསྟན་འབར་མ་བཞུགས་སོ.md",
+    "1-SOURCES/Translations/48. Prayer for the Flourishing of the Teachings of the Glorious Great Taklungpa Practice Lineage.md",
+    "1-SOURCES/Text/48. སྒྲུབ་བརྒྱུད་དཔལ་ལྡན་སྟག་ལུང་པ་ཆེན་པོའི་བསྟན་པ་རྒྱས་པའི་སྨོན་ལམ་བཞུགས་སོ.md",
+    "1-SOURCES/Translations/47. The Supreme and Sacred Teacher.md",
+    "1-SOURCES/Text/47. སྟོན་མཆོག་དམ་པ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Translations/46. The Supreme Among the Great.md",
+    "1-SOURCES/Text/46. ཆེ་བའི་ཆེ་མཆོག་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Translations/45. The Pinnacle of the Victory Banner.md",
+    "1-SOURCES/Text/45. རྒྱལ་མཚན་རྩེ་མོ་བཞུགས་སོ.md",
+    "1-SOURCES/Translations/44. Butter Lamp Prayer by the Venerable Lord (Atisha).md",
+    "1-SOURCES/Text/44. ཇོ་བོ་རྗེས་མཛད་པའི་མར་མེ་སྨོན་ལམ.md",
+    "1-SOURCES/Text/43. ཞབས་བརྟན་འཆི་མེད་གྲུབ་པའི་དབྱངས་སྙན་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/42. ཞབས་བརྟན་གསོལ་འདེབས་སྨྲ་བའི་ཉི་མ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/41. ཞབས་བརྟན་གསོལ་འདེབས་དགེ་ལེགས་ཀུན་འཕེལ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/40. ཞབས་བརྟན་གསོལ་འདེབས་སྨོན་དོན་ལེགས་འགྲུབ་ཅེས་བྱ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/39. རྒྱལ་དབང་བཅུ་བཞི་པའི་ཞབས་བརྟན.md",
+    "1-SOURCES/Text/38. སེང་གདོང་མ.md",
+    "1-SOURCES/Translations/28. Jangchubsempéchöpa la jukpéngöwéle’u The chapter on dedication from the Bodhisattva’s Way of Life.md",
+    "1-SOURCES/Text/28. བྱང་ཆུབ་སེམས་དཔའི་སྤྱོད་པ་ལ་འཇུག་པ་ལས་བྱུང་བའི་བསྔོ་བའི་ལེའུ་བཞུགས་སོ.md",
+    "1-SOURCES/Translations/27. The Prayer for Rebirth in Sukhāvatī, composed by Ācārya Nāgārjuna.md",
+    "1-SOURCES/Text/27. སློབ་དཔོན་ཀླུ་སྒྲུབ་ཀྱིས་མཛད་པའི་བདེ་སྨོན་བཞུགས་སོ.md",
+    "1-SOURCES/Text/26. དཀོན་མཆོག་བརྩེགས་པ་ལེའུ་ཞེ་གཅིག་པ་བྱམས་པས་ཞུས་པ་ལས་བྱུང་བའི་བྱམས་པའི་སྨོན་ལམ་ནི.md",
+    "1-SOURCES/Text/25. འཕགས་པ་བཟང་པོ་སྤྱོད་པའི་སྨོན་ལམ་གྱི་རྒྱལ་པོ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/24. བྱང་ཆུབ་སེམས་དཔའི་ལྟུང་བ་བཤགས་པ་བཞུགས་སོ.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.12d3beb0bf36",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.294c8f46efcc",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.57caf5ded9ce",
-    "0-INBOX/temp/en-translation-removed-lines.md",
-    "0-INBOX/raw-data/En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration.md",
     "0-INBOX/raw-data/སྟག་ལུང་སྨོན་ལམ་ཞལ་འདོན།.pdf",
-    "README.md",
     "gemini-scribe/Scheduled-Tasks/Runs",
     "gemini-scribe/Skills",
     "gemini-scribe/Background-Tasks",
     "gemini-scribe/Agent-Sessions",
     "gemini-scribe/Scheduled-Tasks/scheduled-tasks-state.json",
-    "gemini-scribe/Prompts/example-expert.md",
-    "gemini-scribe/Scheduled-Tasks",
-    "CLAUDE.md",
-    "4-SYSTEM/Skills/epub-to-markdown/converters/README.md",
-    "4-SYSTEM/Skills/verse-context/SKILL.md",
-    "4-SYSTEM/Skills/vault-audit/SKILL.md",
-    "4-SYSTEM/Skills/translation-frontmatter/SKILL.md",
-    "4-SYSTEM/Skills/source-property-extractor/SKILL.md",
-    "4-SYSTEM/Skills/structural-outline-ingest/SKILL.md",
-    "4-SYSTEM/Skills/section-summary-combined/SKILL.md",
-    "4-SYSTEM/Skills/section-summary-raw/SKILL.md",
-    "4-SYSTEM/Skills/root-text-frontmatter/SKILL.md",
-    "4-SYSTEM/Skills/reference-frontmatter/SKILL.md",
-    "4-SYSTEM/Skills/property-creator/SKILL.md",
-    "4-SYSTEM/Skills/json-to-source-text/SKILL.md",
-    "4-SYSTEM/Skills/local-wiki-article/SKILL.md",
-    "4-SYSTEM/Skills/json-to-commentary/SKILL.md",
-    "4-SYSTEM/Skills/glossary-select/SKILL.md",
-    "4-SYSTEM/Skills/interlinear-gloss/SKILL.md",
-    "4-SYSTEM/Skills/glossary-combine/SKILL.md",
-    "4-SYSTEM/Skills/glossary-extract-raw/SKILL.md"
+    "gemini-scribe/Scheduled-Tasks"
   ]
 }
