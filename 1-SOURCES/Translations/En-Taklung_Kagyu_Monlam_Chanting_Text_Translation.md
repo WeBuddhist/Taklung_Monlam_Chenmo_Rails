@@ -4973,7 +4973,7 @@ Cultivating the supreme aspirational and engaged mind of enlightenment (bodhicit
 
 Through this virtue, may all beings swiftly attain enlightenment! (already translated) ^20-14
 
-[Ed: no English translation given in source] ^20-15
+RAM YAM KHAM. ^20-15
 
 In the kapāla of vast expanse pervading saṃsāra and nirvāṇa
 The awareness wisdom of the five meats and the five nectars
@@ -5344,7 +5344,7 @@ The hosts of retinues of ḍākinīs and dharmapāḷas,
 Together with the sound of bell, bangles, and cymbals,
 Invite them in an instant. <small>Think in this way.</small> ^22-17
 
-[Ed: no English translation given in source] ^22-18
+E A RA LI PHEM. ^22-18
 
 VAJRA SA MA DZA <small>Invoke with this.</small> ^22-19
 
@@ -5352,7 +5352,7 @@ JAH HUNG BAM HO <small>dissolving into nonduality,</small> ^22-20
 
 NA MO NA MA HUNG <small>Prostrate with this.</small> ^22-21
 
-[Ed: no English translation given in source] ^22-22
+OM A HUNG. ^22-22
 
 The offerings of sense pleasures, and so on,
 The outer, inner, secret, and suchness,
@@ -5365,9 +5365,9 @@ Having taken by the mind without exception,
 Through unstinting mind,
 I offer to the Venerble (Jetsun) together with his retinues! ^22-24
 
-[Ed: no English translation given in source] ^22-25
+OM SHRI MAN GURU CHARANA SAPARIVARA ARGHAM <small>[onward]</small> ^22-25
 
-[Ed: no English translation given in source] ^22-26
+SHABDA RUPA GHANDHE RASA SPARSHE DHARMA DHATU ATMAKO HAM. ^22-26
 
 <small>Thus, make offering.</small> ^22-27
 
@@ -5393,7 +5393,7 @@ the Venerable master! ^22-31
 
 <small>Praise with this, then, applying mindfulness,</small> ^22-32
 
-[Ed: no English translation given in source] ^22-33
+OM AH NAMO RATNA GURU KIRTI SHRI RASMI BHADRAYA HUNG. ^22-33
 
 <small>Recite this as much as you can. In the end, with a strong and unflagging devotion in guru, with a single-pointed mind merged with the faith of total reliance, recite these sacred words of the past Kagyu forefathers:</small> ^22-34
 
@@ -5480,7 +5480,7 @@ Are invited into the sky before me.
 From their tongues, tubes of light extend into the torma.
 By partaking of it, may they experience an array of the supreme flavors of everything delightful. ^23-4
 
-[Ed: no English translation given in source] ^23-5
+OM AH HUNG GURU DHI VA DAKKINI IDAM BALINTA KHA KHA KHAHI KHAHI. ^23-5
 
 HŪṂ! All-pervading Lord Vajradhara, mighty holder of the vajra,
 Nāgārjuna, Āryadeva, and Aśvaghoṣa,
@@ -5644,7 +5644,7 @@ Cause everything wished for in the mind to be accomplished in an instant. ^23-39
 
 [Then recite the section beginning with “Glorious Mikyö…” <small>and so forth.</small>] ^23-40
 
-[Ed: no English translation given in source] ^23-41
+NAMO MANGA SHRIYE HUNG. ^23-41
 
 <small>Here, a concise supplication and offering is to be made to the two great Dharma protectors of our own tradition. The torma should be prepared according to the customary tradition.</small> ^23-42
 
@@ -5656,21 +5656,21 @@ Together with your sons, consorts, ministers, subjects and retinues—
 Remember your former pledge and solemn oath,
 And please come to this supreme and sacred place. ^23-44
 
-[Ed: no English translation given in source] ^23-45
+OM VAJRA SAMAYA JA JAH HUNG BAM HO. ^23-45
 
-[Ed: no English translation given in source] ^23-46
+SAMAYA TISHTHA LHAN. ^23-46
 
-[Ed: no English translation given in source] ^23-47
+OM VAJRA SAMAYA HANA HANA HUNG PHAT. ^23-47
 
 VAJRA ARGHAM PĀDYAM <small>…through to:</small> ^23-48
 
-[Ed: no English translation given in source] ^23-49
+SHABDA PRATICCHA SVAHA. ^23-49
 
-[Ed: no English translation given in source] ^23-50
+MAHA PANCHA KHAHI. MAHA RAKTA KHAHI. ^23-50
 
-[Ed: no English translation given in source] ^23-51
+CHANDRA PRAMANI DHARA DHARA SAMAYA JA JAH SAPARIVARA EDAM <small>etc.</small> ^23-51
 
-[Ed: no English translation given in source] ^23-52
+DHASHAGHRIVA DUJAH SAPARIVARA EDAM <small>etc.</small> ^23-52
 
 Great divine upāsaka, the fierce and powerful tsen spirit of Drak, Commander Yi Gyal Rinchen, together with your entire retinue: Please accept this vast sacrificial torma offering. ^23-53
 
@@ -7844,15 +7844,15 @@ Then, He spoke about the Lord of Speech,
 which manifest from non-duality,
 endowed with the quality of non-arising, he spoke. ^34-28
 
-[Ed: no English translation given in source] ^34-29
+A A I I U A E E. O AU AM AH STHITO HRIDI. ^34-29
 
-[Ed: no English translation given in source] ^34-30
+JNANAMURTIRAHAM BUDDHO BUDDHANAM. ^34-30
 
-[Ed: no English translation given in source] ^34-31
+TUDHVAVARTINAM. O VAJRA TIKSHNA DUHKHA CCHEDA. ^34-31
 
-[Ed: no English translation given in source] ^34-32
+PRAJNA JNANAMURTAYE. JNANAKAYA. ^34-32
 
-[Ed: no English translation given in source] ^34-33
+VAGISHVARA ARAPACHANAYA TE NAMAH ^34-33
 
 So, the Buddha, the Accomplished Transcendent Conqueror,
 The Perfect Buddha, arisen from the letter A,
@@ -8529,15 +8529,15 @@ Homage to you, who shows the display of the buddhas!
 Homage to you, everything of everything!
 Homage to you, embodiment of original awareness! ^34-168
 
-[Ed: no English translation given in source] ^34-169
+OM SARVA DHARMA ABHAVA SVABHAVA VISHUDDHA VAJRA. ^34-169
 
-[Ed: no English translation given in source] ^34-170
+A A OM AH PRAKRITI PARISHUDDHAH SARVA DHARMAM YADUTA. ^34-170
 
-[Ed: no English translation given in source] ^34-171
+SARVA TATHAGATA JNANAKAYA MAKLU SHRI PARISHUDDHATA MUPATAYATI. ^34-171
 
-[Ed: no English translation given in source] ^34-172
+A AH SARVA TATHAGATA HRIDAYA HARA HARA OM HUNG HIH. ^34-172
 
-[Ed: no English translation given in source] ^34-173
+BHAGAVA JNANAMURTI VAGISHVARA MAHA PACHA SARVA DHARMA GAGANA AMALA SUPARISHUDDHA DHARMADHATU JNANAGARBHA A. ^34-173
 
 Then, glorious Vajradhara,
 pleased and delighted, with folded palms,
@@ -8669,7 +8669,7 @@ should be known as truth, since there is no deception. ^35-48
 
 The mantra of Transcendent Wisdom is said in this way: ^35-49
 
-[Ed: no English translation given in source] ^35-50
+TADYATHA OM GATE GATE PARAGATE PARASAMGATE BODHI SVAHA. ^35-50
 
 Thus, Shariputra, should the Bodhisattva Mahasattva engage in the profound Transcendent Wisdom. ^35-51
 
@@ -8807,7 +8807,7 @@ completely sheltered by her hand gesture of granting refuge. ^36-37
 
 <small>Conceiving this visualization, recite the extensive dharani, or short version:</small> ^36-38
 
-[Ed: no English translation given in source] ^36-39
+OM SITATAPATRE APARAJITE SARVA GRAHANA TRASAYA TRASAYA HANA HANA HUNG HUNG HUNG HUNG PHAT PHAT SVAHA. ^36-39
 
 <small>Zlog-’gyur The Reversion Ritual At the end of recitation, perform the reversing ritual:</small> ^36-40
 
@@ -8893,9 +8893,9 @@ Turn back the danger of untimely death. ^36-80
 
 Turn back every unfavorable and opposing circumstance. ^36-81
 
-[Ed: no English translation given in source] ^36-82
+BHAGAVATE SARVA TATHAGATOCCHISHA SITATAPATRE SAPARIVARA AGHAM. PATYAM. ^36-82
 
-[Ed: no English translation given in source] ^36-83
+PUPPE. DHUPPE. ALOKE. GANDHE. NIVIDYA. SHABDA PRATICCHAYE SVAHA. ^36-83
 
 <small>Praise with Indian classical texts, the praises composed by Sangye Onpo, or in short:</small> ^36-84
 
@@ -8993,11 +8993,11 @@ Through the great and vast vajra, you rule over the mandala of the three realms.
 
 Please protect us completely—ourselves, our people, our possessions, and all those around us—throughout both day and night. ^37-22
 
-[Ed: no English translation given in source] ^37-23
+TADYATHA OM ANALE ANALE. VISHADE VISHADE. VAIRE VAIRE. ^37-23
 
-[Ed: no English translation given in source] ^37-24
+VAJRADHARI. BANDHA BANDHANI. VAJRAPANI HUNG HUNG PHAT PHAT SVAHA. ^37-24
 
-[Ed: no English translation given in source] ^37-25
+HUNG DRUM BANDHA PHAT. MAMA RAKSHA RAKSHA SVAHA. ^37-25
 
 All buried curses, bindings, and ties upon the body, speech, and mind of myself and those to be protected— open, open! Release, release! ^37-26
 
@@ -9007,7 +9007,7 @@ Pacify all evil: ŚĀNTIṀ KURU YE SVĀHĀ! ^37-28
 
 <small>Recite this section seven times as the best, five times as medium, or three times as the minimum. Following that, recite the Heart Mantra and Near-Heart Mantra as much as desired according to your practice capacity.</small> ^37-29
 
-[Ed: no English translation given in source] ^37-30
+OM SARVA TATHAGATA USHNISHA HUNG PHAT. ^37-30
 
 <small>The Heart Mantra:</small> HUNG MA MA HUNG NI SVA HA ^37-31
 
@@ -9200,7 +9200,7 @@ My three places are marked with Oṃ, Āḥ, and Hūṃ.
 Light radiates out, invites the wisdom being, and dissolves her into me.
 I receive empowerment, and Akṣobhya adorns the crown of my head. ^38-4
 
-[Ed: no English translation given in source] ^38-5
+OM SHRI VAJRA DAKINI SAPARIVARA AGHAM <small>[onward]</small> SHABDA PRATICCHAYE SVAHA. ^38-5
 
 Glorious Vajra Dakini,
 sovereign of the dakinis,
@@ -9212,7 +9212,7 @@ Upon a sun disc at its centre is the syllable HŪṂ.
 As the surrounding mantra garland revolves, light radiates out.
 May illness, harmful spirits, and obstacles be pacified, and may adverse circumstances be turned away. ^38-7
 
-[Ed: no English translation given in source] ^38-8
+AH KAH SAH MAH RAH CHAH SHAH DAH RAH SAH MAH RAH YAH PHATAH ^38-8
 
 Wisdom dakini with the face of a lion: through the power of your deity, mantra, and meditative concentration, may everything harmful to us practitioners—to teachers and students, benefactors and those around us—be turned back. ^38-9
 
@@ -9407,7 +9407,7 @@ Their light shining from the pinnacle of existence down ^44-6
 
 to the lowest hell, clearly revealing all the realms of Buddhas and Bodhisattvas in the ten directions! ^44-7
 
-[Ed: no English translation given in source] ^44-8
+OM VAJRA ALOKE A HUNG. ^44-8
 
 Emaho! This wonderful and amazing light, burning brightly, ^44-9
 
@@ -9425,7 +9425,7 @@ And by the power of truth of this aspiration prayer
 to the Three Jewels and all the assembled deities of the Three Roots,
 May this prayer be quickly accomplished! ^44-12
 
-[Ed: no English translation given in source] ^44-13
+TADYATHA PANCHENDRIYA AVABODHANAYE SVAHA. ^44-13
 
 <small>It is said that the Venerable Lord Glorious Atisha and seventeen disciples would chant this together as they made offerings in the shrines of Ü and Tsang.</small> ^44-14
 
