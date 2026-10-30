@@ -4582,13 +4582,13 @@ And may there be auspiciousness to remain the teachings for a long time! ^18-491
 
 OM AH HUNG <small>[three times]</small> ^18-493
 
-[Ed: no English translation given in source] ^18-494
+NAMAH SARVA TATHAGATA BHYO VISHVA <small>etc. Bless it with the mantra and mudra of the Space Treasury.</small> ^18-494
 
-[Ed: no English translation given in source] ^18-495
+OM DHRIDHASHTAYE. VIRUDAKAYE. VIRUPAKSHAYE. ^18-495
 
-[Ed: no English translation given in source] ^18-496
+VAISHRAVANAYE SAPARIVARA IDAM BALINTA KHA KHA KHAHI. <small>[three times]</small> ^18-496
 
-[Ed: no English translation given in source] ^18-497
+ARGHAM <small>[onward]</small> SHABDA PRATICCHAYE SVAHA. ^18-497
 
 The powerful one donning the armor of exertion,
 Perfectly protecting the teachings of the Buddha,

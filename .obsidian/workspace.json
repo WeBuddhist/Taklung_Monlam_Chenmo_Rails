@@ -235,10 +235,13 @@
       "gemini-scribe:Gemini Scribe: Agent Mode": false
     }
   },
-  "active": "d066ca5c15f520a5",
+  "active": "6b73d27b55c050e3",
   "lastOpenFiles": [
-    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
     "0-INBOX/raw-data/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
+    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
+    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.12d3beb0bf36",
+    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.294c8f46efcc",
+    "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.57caf5ded9ce",
     "0-INBOX/temp/en-translation-removed-lines.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Transliteration.md",
     "0-INBOX/raw-data/སྟག་ལུང་སྨོན་ལམ་ཞལ་འདོན།.pdf",
@@ -250,10 +253,7 @@
     "gemini-scribe/Scheduled-Tasks/scheduled-tasks-state.json",
     "gemini-scribe/Prompts/example-expert.md",
     "gemini-scribe/Scheduled-Tasks",
-    "gemini-scribe/Prompts",
-    "gemini-scribe",
     "CLAUDE.md",
-    "4-SYSTEM/Skills/json-to-commentary/scripts/converters/__pycache__/tipitaka_org_atthakatha.cpython-310.pyc",
     "4-SYSTEM/Skills/epub-to-markdown/converters/README.md",
     "4-SYSTEM/Skills/verse-context/SKILL.md",
     "4-SYSTEM/Skills/vault-audit/SKILL.md",
@@ -271,7 +271,6 @@
     "4-SYSTEM/Skills/glossary-select/SKILL.md",
     "4-SYSTEM/Skills/interlinear-gloss/SKILL.md",
     "4-SYSTEM/Skills/glossary-combine/SKILL.md",
-    "4-SYSTEM/Skills/glossary-extract-raw/SKILL.md",
-    "4-SYSTEM/Skills/format-commentary/SKILL.md"
+    "4-SYSTEM/Skills/glossary-extract-raw/SKILL.md"
   ]
 }
