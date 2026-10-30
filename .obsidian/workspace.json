@@ -28,12 +28,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1-SOURCES/Text/47. སྟོན་མཆོག་དམ་པ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+                "file": "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "47. སྟོན་མཆོག་དམ་པ་ཞེས་བྱ་བ་བཞུགས་སོ"
+              "title": "01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ"
             }
           }
         ],
@@ -50,12 +50,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1-SOURCES/Translations/09. The Tea Offering Deathless Amrita.md",
+                "file": "1-SOURCES/Translations/01. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "09. The Tea Offering Deathless Amrita"
+              "title": "01. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on"
             }
           },
           {
@@ -251,8 +251,12 @@
   },
   "active": "6b73d27b55c050e3",
   "lastOpenFiles": [
-    "1-SOURCES/Translations/03. The Fifteen Dharma Practices of the Taklung.md",
+    "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
+    "1-SOURCES/Translations/01. Refuge, Bodhicitta, Invocation, Blessing the Foundation, and so on.md",
+    "1-SOURCES/Translations/09. The Tea Offering Deathless Amrita.md",
+    "1-SOURCES/Text/09. ཇ་མཆོད་འཆི་མེད་བདུད་རྩི.md",
     "1-SOURCES/Text/47. སྟོན་མཆོག་དམ་པ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Translations/03. The Fifteen Dharma Practices of the Taklung.md",
     "1-SOURCES/Translations/08. Praise of the King of Sages and Disciples Called The Loud Sound of Drums That Awakens All Beings Through ….md",
     "1-SOURCES/Text/49. བསྟན་འབར་མ་བཞུགས་སོ.md",
     "1-SOURCES/Text/46. ཆེ་བའི་ཆེ་མཆོག་ཞེས་བྱ་བ་བཞུགས་སོ.md",
@@ -262,7 +266,6 @@
     "1-SOURCES/Text/04. དཀོན་མཆོག་གསུམ་རྗེས་སུ་དྲན་པའི་མདོ.md",
     "1-SOURCES/Text/03. སྟག་ལུང་པའི་ཆོས་སྤྱོད་བཅོ་ལྔ་བཞུགས་སོ.md",
     "1-SOURCES/Text/02. ཡན་ལག་བདུན་པ.md",
-    "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
     "0-INBOX/raw-data/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
     "0-INBOX/raw-data/སྟག་ལུང་སྨོན་ལམ་ཞལ་འདོན།.pdf",
     "1-SOURCES/Translations/32. The Lamrim Aspiration Prayer.md",
@@ -275,9 +278,6 @@
     "1-SOURCES/Translations/13. This is the Prayer Based on the Biography of the Protector of Beings Phagmo Drupa called the Pleasant Rain of ….md",
     "1-SOURCES/Translations/12. Knowing the Space of Objects of Knowledge.md",
     "1-SOURCES/Translations/11. This is the Supplication of the Kagyu called the Manika Crystal.md",
-    "1-SOURCES/Translations/10. Prayer to the Guru and Lineage.md",
-    "1-SOURCES/Text/36. དཔལ་སྟག་ལུང་པའི་ཟབ་ཆོས་གདུགས་དཀར་འདོན་ཐབས་འགྲོ་བ་ཀུན་སྐྱོབས་བཞུགས་སོ.md",
-    "1-SOURCES/Text/35. ཤེས་རབ་སྙིང་པོ.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.12d3beb0bf36",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.294c8f46efcc",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.57caf5ded9ce",
