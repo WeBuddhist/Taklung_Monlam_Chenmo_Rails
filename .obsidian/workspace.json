@@ -28,12 +28,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
+                "file": "1-SOURCES/Text/02. ཡན་ལག་བདུན་པ.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ"
+              "title": "02. ཡན་ལག་བདུན་པ"
             }
           }
         ],
@@ -50,12 +50,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "0-INBOX/raw-data/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md",
+                "file": "1-SOURCES/Translations/03. The Fifteen Dharma Practices of the Taklung.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "En-Taklung_Kagyu_Monlam_Chanting_Text_Translation"
+              "title": "03. The Fifteen Dharma Practices of the Taklung"
             }
           },
           {
@@ -131,7 +131,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 443.5
+    "width": 228.83334350585938
   },
   "right": {
     "id": "08fb4a0a47ab3b49",
@@ -251,32 +251,32 @@
   },
   "active": "bdbe47f4869a79dd",
   "lastOpenFiles": [
+    "1-SOURCES/Text/05. རྒྱུན་ཆགས་གསུམ་པ.md",
+    "1-SOURCES/Text/04. དཀོན་མཆོག་གསུམ་རྗེས་སུ་དྲན་པའི་མདོ.md",
+    "1-SOURCES/Text/03. སྟག་ལུང་པའི་ཆོས་སྤྱོད་བཅོ་ལྔ་བཞུགས་སོ.md",
     "1-SOURCES/Text/02. ཡན་ལག་བདུན་པ.md",
     "1-SOURCES/Text/01. སྐྱབས་སེམས་དང་སྤྱན་འདྲེན་ས་གཞི་བྱིན་རླབས་སོགས་བཞུགས་སོ.md",
-    "1-SOURCES/Text/05. རྒྱུན་ཆགས་གསུམ་པ.md",
-    "1-SOURCES/Text/03. སྟག་ལུང་པའི་ཆོས་སྤྱོད་བཅོ་ལྔ་བཞུགས་སོ.md",
-    "0-INBOX/raw-data/Bo-Taklung_Kagyu_Monlam_Chanting_Text.md",
-    "1-SOURCES/Translations/49. The Prayer for the Teachings to Blaze.md",
-    "1-SOURCES/Text/49. བསྟན་འབར་མ་བཞུགས་སོ.md",
-    "1-SOURCES/Translations/48. Prayer for the Flourishing of the Teachings of the Glorious Great Taklungpa Practice Lineage.md",
-    "1-SOURCES/Text/48. སྒྲུབ་བརྒྱུད་དཔལ་ལྡན་སྟག་ལུང་པ་ཆེན་པོའི་བསྟན་པ་རྒྱས་པའི་སྨོན་ལམ་བཞུགས་སོ.md",
-    "1-SOURCES/Translations/47. The Supreme and Sacred Teacher.md",
-    "1-SOURCES/Text/47. སྟོན་མཆོག་དམ་པ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
-    "1-SOURCES/Translations/46. The Supreme Among the Great.md",
-    "1-SOURCES/Text/46. ཆེ་བའི་ཆེ་མཆོག་ཞེས་བྱ་བ་བཞུགས་སོ.md",
-    "1-SOURCES/Translations/45. The Pinnacle of the Victory Banner.md",
-    "1-SOURCES/Text/45. རྒྱལ་མཚན་རྩེ་མོ་བཞུགས་སོ.md",
-    "1-SOURCES/Translations/44. Butter Lamp Prayer by the Venerable Lord (Atisha).md",
-    "1-SOURCES/Text/44. ཇོ་བོ་རྗེས་མཛད་པའི་མར་མེ་སྨོན་ལམ.md",
-    "1-SOURCES/Text/43. ཞབས་བརྟན་འཆི་མེད་གྲུབ་པའི་དབྱངས་སྙན་ཞེས་བྱ་བ་བཞུགས་སོ.md",
-    "1-SOURCES/Text/42. ཞབས་བརྟན་གསོལ་འདེབས་སྨྲ་བའི་ཉི་མ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
-    "1-SOURCES/Text/41. ཞབས་བརྟན་གསོལ་འདེབས་དགེ་ལེགས་ཀུན་འཕེལ་ཞེས་བྱ་བ་བཞུགས་སོ.md",
-    "1-SOURCES/Text/40. ཞབས་བརྟན་གསོལ་འདེབས་སྨོན་དོན་ལེགས་འགྲུབ་ཅེས་བྱ་བ་བཞུགས་སོ.md",
-    "1-SOURCES/Text/39. རྒྱལ་དབང་བཅུ་བཞི་པའི་ཞབས་བརྟན.md",
-    "1-SOURCES/Text/38. སེང་གདོང་མ.md",
-    "1-SOURCES/Translations/28. Jangchubsempéchöpa la jukpéngöwéle’u The chapter on dedication from the Bodhisattva’s Way of Life.md",
-    "1-SOURCES/Text/28. བྱང་ཆུབ་སེམས་དཔའི་སྤྱོད་པ་ལ་འཇུག་པ་ལས་བྱུང་བའི་བསྔོ་བའི་ལེའུ་བཞུགས་སོ.md",
-    "1-SOURCES/Translations/27. The Prayer for Rebirth in Sukhāvatī, composed by Ācārya Nāgārjuna.md",
+    "1-SOURCES/Translations/03. The Fifteen Dharma Practices of the Taklung.md",
+    "1-SOURCES/Translations/32. The Lamrim Aspiration Prayer.md",
+    "1-SOURCES/Translations/31. The Aspiration Prayer of Cakrasaṃvara.md",
+    "1-SOURCES/Translations/30. Aspirations of Akshobhya.md",
+    "1-SOURCES/Translations/29. Aspiration of Pure Realm Free from Dust (Abhirati).md",
+    "1-SOURCES/Translations/16. Praise of the Previous Lives of TaklungThangpa Rinpoche.md",
+    "1-SOURCES/Translations/15. Condensed Birth Stories of Thangpa.md",
+    "1-SOURCES/Translations/14. This is the Praise of the Life Story of Glorious Taklung Tangpa called the Great Drum of Sincere Faith.md",
+    "1-SOURCES/Translations/13. This is the Prayer Based on the Biography of the Protector of Beings Phagmo Drupa called the Pleasant Rain of ….md",
+    "1-SOURCES/Translations/12. Knowing the Space of Objects of Knowledge.md",
+    "1-SOURCES/Translations/11. This is the Supplication of the Kagyu called the Manika Crystal.md",
+    "1-SOURCES/Translations/10. Prayer to the Guru and Lineage.md",
+    "1-SOURCES/Text/36. དཔལ་སྟག་ལུང་པའི་ཟབ་ཆོས་གདུགས་དཀར་འདོན་ཐབས་འགྲོ་བ་ཀུན་སྐྱོབས་བཞུགས་སོ.md",
+    "1-SOURCES/Text/35. ཤེས་རབ་སྙིང་པོ.md",
+    "1-SOURCES/Text/34. འཇམ་དཔལ་མཚན་བརྗོད་བཞུགས་སོ.md",
+    "1-SOURCES/Text/33. དཔལ་སྟག་ལུང་ཐང་པའི་མཛད་པའི་གསོན་གཤིན་གྱི་བསྔོ་བ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/32. ལམ་རིམ་སྨོན་ལམ.md",
+    "1-SOURCES/Text/31. བདེ་མཆོག་སྨོན་ལམ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/30. མི་འཁྲུགས་པའི་སྨོན་ལམ.md",
+    "1-SOURCES/Text/29. རྡུལ་བྲལ་ཞིང་སྨོན་སྭ་སྟི་ཕྱི་རོལ་བཞུགས་སོ.md",
+    "1-SOURCES/Text/16. སྟག་ལུང་ཐང་པ་རིན་པོ་ཆེའི་སྐྱེས་རབས་བསྟོད་པ.md",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.12d3beb0bf36",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.294c8f46efcc",
     "1-SOURCES/Translations/En-Taklung_Kagyu_Monlam_Chanting_Text_Translation.md.tmp.9524.57caf5ded9ce",
